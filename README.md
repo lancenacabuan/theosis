@@ -1,4 +1,4 @@
-## **Theosis: Our Holy Calling to Reflect God’s Glory in Christ through Communion with Him as Partakers of the Divine Nature**
+## **Theosis: Our Holy Calling to Reflect God’s Glory and Grow into Christ's Likeness through Communion with Him**
 
 #### **Definition:**
 Theosis, derived from the Greek word *theosis* (θέωσις), meaning "deification" or "divinization," is a theological concept central to Christianity, particularly within Eastern Orthodox theology. It describes the transformative process by which a human being becomes united with God and partakes in the divine nature, as expressed in **2 Peter 1:4**:
