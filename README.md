@@ -1,4 +1,4 @@
-### **Theosis: A Comprehensive Overview**
+### **Theosis: Our Holy Calling to Reflect God’s Glory in Christ**
 
 #### **Definition:**
 Theosis, derived from the Greek word *theosis* (θέωσις), meaning "deification" or "divinization," is a theological concept central to Christianity, particularly within Eastern Orthodox theology. It describes the transformative process by which a human being becomes united with God and partakes in the divine nature, as expressed in **2 Peter 1:4**:
@@ -107,13 +107,9 @@ Theosis beautifully encapsulates humanity’s divine calling: to be transformed 
 
 ---
 
-Certainly! Below is a revised version of the blog that incorporates a fuller understanding of *Theosis* while maintaining the original core message and composition. It also integrates some historical and doctrinal perspectives to better align with the traditional Orthodox understanding, while keeping the practical, accessible tone:
+# Four Pillars of Theosis Discipleship: Exalt, Emulate, Exemplify, and Embody
 
----
-
-# Theosis: Our Holy Calling to Reflect God’s Glory in Christ
-
-The Christian life is not merely about outward behaviors or religious rituals. At its heart, it is an ongoing, transformative journey of becoming more like Christ. This process, known as *Theosis*, invites believers to reflect God’s image more fully and participate in His divine nature. Discipleship is at the core of *Theosis*—as we follow Jesus, learn from Him, and grow into His likeness. 
+The Christian life is not merely about outward behaviors or religious rituals. At its heart, it is an ongoing, transformative journey of becoming more like Christ. This process, known as *Theosis*, invites believers to reflect God’s image more fully and participate in His divine nature. Discipleship is at the core of *Theosis*—as we follow Jesus, learn from Him, and grow into His likeness.
 
 The beauty of *Theosis* lies in its holistic transformation, involving every aspect of our being—spirit, mind, and body. Rooted in both the gospel and the teachings of the Church Fathers, *Theosis* is the process by which believers, through the grace of God, are united with Christ and partake in His divine life. Discipleship is the practical outworking of this transformative process, where we intentionally align our lives with God’s will, take up our cross daily, and walk in His footsteps.
 
