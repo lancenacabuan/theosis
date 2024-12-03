@@ -13,6 +13,7 @@ At its core, theosis is the process of becoming more like God. It is not about h
  This doctrine emphasizes the transformative union between humanity and God, made possible by Jesus Christ’s incarnation, life, death, and resurrection. Theosis is the ultimate goal of human life and salvation. It is not a reward but a restoration of humanity's original calling to communion with God.
 
 - **Biblical Basis**
+
 The doctrine of theosis is deeply rooted in Scripture, revealing the believer’s calling to participate in the divine nature and grow into the image and likeness of God:
   - **Humanity’s Creation in God’s Image**: The groundwork for theosis (Genesis 1:26-27).
   - **Divine Invitation**: Humanity’s status as children of God (Psalm 82:6).
@@ -23,6 +24,7 @@ The doctrine of theosis is deeply rooted in Scripture, revealing the believer’
   - **Eternal Fulfillment**: Full likeness to Christ in glory (1 John 3:2).
 
 - **Theological Development**
+
 Theosis has been central to Christian thought since the early Church:
   - **Athanasius of Alexandria:** Declared, "God became man so that man might become god" (*On the Incarnation*), underscoring Christ’s role in human transformation.
   - **Gregory of Nyssa:** Highlighted an unending ascent toward God, symbolizing the infinite nature of divine communion.
