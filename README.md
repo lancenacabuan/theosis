@@ -127,6 +127,8 @@ The first pillar of *Theosis* is living for the glory of God. From the very begi
 
 In the context of discipleship, *Exalt* calls us to recognize that our primary role as followers of Jesus is to glorify God in everything we do. Jesus modeled this perfectly during His earthly ministry. In John 17:4, He prayed, “I glorified You on the earth, having accomplished the work which You have given Me to do.” His life was a reflection of His obedience and devotion to the Father. As disciples, we are called to follow His example, living our lives as an offering to God’s glory (1 Corinthians 10:31).
 
+Humanity was originally created in God’s image and likeness, designed to reflect His glory in the world. However, due to sin, we have fallen short of God’s intended purpose and glory, resulting in a broken relationship with our Creator. The ultimate fulfillment of God’s glorious will is accomplished through the incarnation, life, death, and resurrection of Jesus Christ. In His perfect obedience, Jesus restores what was lost in the fall, enabling us to once again reflect God’s image and live for His glory. As disciples, we are called to align our lives with this divine purpose, embracing the redemptive work of Christ in every aspect of our being.
+
 *Practical Application*:
 - Begin each day by committing your plans and actions to God’s glory.
 - Pray for the strength to make every part of your life a reflection of His goodness.
