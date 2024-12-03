@@ -1,7 +1,7 @@
 # Theosis: A Comprehensive Overview
 
 **Definition:**
-Theosis, derived from the Greek word *theosis* (θέωσις), translates to "deification" or "divinization." It is a theological concept within Christianity, particularly emphasized in Eastern Orthodox theology, which describes the process by which a human being becomes united with God and partakes in the divine nature, as expressed in 2 Peter 1:4: 
+Theosis, derived from the Greek word *theosis* (θέωσις), translates to "deification" or "divinization." It is a theological concept within Christianity, particularly emphasized in Eastern Orthodox theology, which describes the process by which a human being becomes united with God and partakes in the divine nature, as expressed in 2 Peter 1:4:
 
 *"For by these He has granted to us His precious and magnificent promises, so that by them you may become partakers of the divine nature, having escaped the corruption that is in the world by lust."* (NASB1995)
 
