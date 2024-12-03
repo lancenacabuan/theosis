@@ -1,4 +1,4 @@
-## **Glorify God, Emulate Christ: The Thesis of Theosis**
+## **Theosis: Our Holy Calling to Reflect God’s Glory and Grow into Christ's Likeness through Communion with Him**
 
 The Christian life is not merely about outward behaviors or religious rituals. At its heart, it is an ongoing, transformative journey of becoming more like Christ. This process, known as *Theosis*, invites believers to reflect God’s image more fully and participate in His divine nature. Discipleship is at the core of *Theosis*—as we follow Jesus, learn from Him, and grow into His likeness.
 
