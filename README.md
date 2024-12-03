@@ -5,7 +5,7 @@ Theosis, derived from the Greek word *theosis* (θέωσις), meaning "deificat
 
 *"For by these He has granted to us His precious and magnificent promises, so that by them you may become partakers of the divine nature, having escaped the corruption that is in the world by lust."* (NASB1995)
 
-Theosis is not about humans becoming gods in essence but being transformed by grace, sharing in God’s divine life and love while maintaining the Creator-creature distinction.
+Theosis is not about humans becoming gods in essence but being transformed by grace, sharing in God’s divine life and holiness while maintaining the Creator-creature distinction.
 
 ---
 
