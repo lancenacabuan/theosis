@@ -102,10 +102,53 @@ Union with God is not merely the final goal but the essence of the believer’s 
 
 ---
 
-### 6. **The Role of the Trinity**
-- **God the Father**: The initiator of salvation and source of divine life.
-- **Jesus Christ**: The incarnate Word whose life, death, and resurrection open the path to theosis.
-- **Holy Spirit**: The active agent in sanctification, empowering believers to grow in holiness and communion with God.
+### 6. **The Role of the Trinity in Theosis (Biblical Foundation)**
+
+The process of theosis involves the active participation of all three Persons of the Trinity: God the Father, God the Son (Jesus Christ), and God the Holy Spirit. Each plays a distinct yet unified role in enabling believers to partake in the divine nature and grow into Christ's likeness. Here is a detailed Biblical exposition of their roles:
+
+---
+
+#### **1. God the Father: The Source and Initiator of Theosis**
+God the Father is the ultimate source of divine life and the architect of salvation, inviting humanity into fellowship with Him. Through His love and sovereign will, the Father initiates the plan for humanity's restoration and communion with Himself.
+
+- **Creation**: Humanity was created in God’s image to reflect His glory (Genesis 1:26-27). Theosis is the restoration of this original intent, initiated by the Father’s purpose.
+- **Election and Predestination**: The Father predestines believers to be conformed to the image of His Son (Romans 8:29; Ephesians 1:4-5), showing His sovereign desire for humanity to partake in His holiness.
+- **Adoption**: Through the work of the Son, the Father adopts believers into His family, making them heirs to divine life (Romans 8:15-17; Galatians 4:6-7).
+- **Glorification**: The Father promises to glorify believers, completing the process of theosis (1 Thessalonians 5:23-24; Philippians 1:6).
+
+---
+
+#### **2. God the Son: The Mediator and Model of Theosis**
+Jesus Christ, the incarnate Son of God, is both the means and the model for theosis. Through His incarnation, death, and resurrection, He bridges the gap between humanity and God, enabling us to partake in divine life.
+
+- **Incarnation**: The Son unites divinity and humanity, making theosis possible. *“The Word became flesh, and dwelt among us, and we saw His glory”* (John 1:14). Through His life on earth, Christ provides the perfect example of human holiness.
+- **Redemption**: By His atoning sacrifice, Jesus removes the barrier of sin, reconciling humanity to God (2 Corinthians 5:21; Colossians 1:19-22). This reconciliation allows believers to be transformed into His likeness.
+- **Union with Christ**: Believers are united with Christ through faith and baptism, sharing in His life, death, and resurrection (Romans 6:3-5; Galatians 2:20).
+- **Transformation into His Likeness**: Through beholding Christ’s glory, believers are progressively transformed into His image (2 Corinthians 3:18). Jesus is the firstborn among many brethren, serving as the pattern for our ultimate glorification (Romans 8:29).
+- **Intercession**: Christ, seated at the right hand of the Father, continually intercedes for believers, sustaining their journey toward theosis (Hebrews 7:25; Romans 8:34).
+
+---
+
+#### **3. God the Holy Spirit: The Empowerer and Sanctifier in Theosis**
+The Holy Spirit is the active agent of theosis, working within believers to purify, illumine, and unite them with God. The Spirit makes the work of the Father and the Son effective in the believer’s life.
+
+- **Regeneration**: The Spirit initiates the believer’s new life in Christ, making them a new creation (John 3:5-8; Titus 3:5). This regeneration begins the process of theosis.
+- **Indwelling**: The Holy Spirit resides within believers, enabling them to experience God’s presence and power (1 Corinthians 6:19; Romans 8:11). Through the Spirit’s indwelling, believers become temples of God.
+- **Sanctification**: The Spirit sanctifies believers, transforming them into the likeness of Christ (2 Thessalonians 2:13; 1 Peter 1:2). He empowers them to overcome sin and live holy lives (Romans 8:13).
+- **Illumination**: The Spirit provides wisdom and understanding, guiding believers into all truth (John 16:13; 1 Corinthians 2:10-12). This enables them to know God and grow in intimacy with Him.
+- **Gifting and Empowerment**: The Spirit equips believers with spiritual gifts for service and growth in holiness (1 Corinthians 12:4-11). These gifts are vital for the individual and collective pursuit of theosis.
+- **Unity with God**: The Spirit unites believers with the Father and the Son, creating the intimacy necessary for divine participation (Ephesians 2:18; 2 Corinthians 13:14).
+
+---
+
+#### **Unified Role of the Trinity in Theosis**
+While each Person of the Trinity plays a distinct role, their work is inseparable and unified. Together, the Father, Son, and Holy Spirit restore believers to the image of God and lead them into divine life. This unity is beautifully expressed in passages like:
+
+- **Ephesians 2:18**: *“For through Him [Christ] we both have our access in one Spirit to the Father.”*
+- **2 Corinthians 13:14**: *“The grace of the Lord Jesus Christ, and the love of God, and the fellowship of the Holy Spirit, be with you all.”*
+- **Romans 8:29-30**: The Father’s predestination, the Son’s redemption, and the Spirit’s sanctification all work together to glorify believers.
+
+Through the Trinity’s harmonious work, theosis is not just a theological concept but a lived reality for the believer.
 
 ---
 
