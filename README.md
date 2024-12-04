@@ -1,6 +1,5 @@
 ## The Thesis of Theosis: Our Holy Calling to Reflect God’s Glory and Grow into Christ's Likeness through Communion with Him
 
-
 ### *Introduction*
 *Theosis*, derived from the Greek word *θέωσις* meaning “divinization” or “deification,” is the transformative process by which believers partake in the divine nature (2 Peter 1:4) and grow into the likeness of Christ. Rooted in the Gospel and central to Christian discipleship, theosis highlights humanity's holy calling to reflect God's glory through grace-enabled communion with the Triune God. While often misunderstood as equating humans with God in essence, theosis is properly defined as the believer’s journey of becoming more fully human, as God intended, through participation in His divine life.
 
@@ -98,10 +97,62 @@ These Scriptures and patristic writings demonstrate that theosis is both Biblica
 
 ---
 
-### III. **Perspectives Across Christian Traditions**
-- **Eastern Orthodox Christianity**: Theosis is central, emphasizing participation in God’s energies through asceticism, prayer, and sacramental life.
-- **Roman Catholicism**: While less prominent, theosis is recognized in the context of sanctification and final glorification.
-- **Protestant Christianity**: Often reframed commonly as sanctification–within justification and glorification–while emphasizing faith, grace, and the transformative work of the Holy Spirit.
+### III. **Perspectives Across Christian Traditions on Theosis**
+#### Three Main Christian Branches
+**1. Eastern Orthodox Christianity**
+   - **Centrality of Theosis**: Theosis is foundational in Eastern Orthodox theology. It views salvation not just as forgiveness of sins but as participation in the divine life. This understanding is deeply tied to the teachings of the early Church Fathers, particularly the Cappadocians.
+   - **Union with God's Energies**: Theosis is achieved by uniting with God's uncreated energies (grace and presence), as opposed to His essence, which remains inaccessible. This distinction was defended by St. Gregory Palamas during the Hesychast controversy.
+   - **Means of Theosis**: Eastern Orthodoxy emphasizes prayer, ascetic practices, and participation in the sacraments, particularly the Eucharist, as the pathways to divine union.
+   - **Mysticism and Spiritual Growth**: The Orthodox approach is highly mystical, focusing on the transformative process of becoming "partakers of the divine nature" (2 Peter 1:4), a journey marked by purification, illumination, and union.
+
+**2. Roman Catholicism**
+   - **Sanctification and Beatific Vision**: While theosis is not a central term, the concept aligns with Catholic teachings on sanctification and the *beatific vision*—the ultimate, eternal union with God experienced in heaven.
+   - **Nature and Grace**: Catholic theology traditionally distinguishes between nature and grace but emphasizes their harmony. Grace elevates nature, allowing humans to share in God's life while maintaining their distinct creaturely status.
+   - **Sacramental Emphasis**: Like Eastern Orthodoxy, the Catholic Church sees the sacraments, particularly the Eucharist and baptism, as essential channels of grace that enable the believer's transformation.
+   - **Thomas Aquinas’ Contribution**: St. Thomas Aquinas framed this transformation in terms of *gratia divina* (divine grace), describing humanity’s participation in God as a process of elevation to the supernatural.
+
+**3. Protestant Christianity**
+   - **Sanctification in Justification**: Protestant traditions, especially in Reformed and Evangelical circles, frame theosis as sanctification—being set apart for God’s purposes and growing in Christlikeness. However, Protestants often avoid terms like "theosis" due to concerns about theological misunderstandings.
+   - **Union with Christ**: Protestant theology strongly emphasizes union with Christ, viewing it as the basis for both justification and sanctification. This union is by faith alone and facilitated by the Holy Spirit.
+   - **Faith Over Works**: Protestants highlight the transformative work of the Holy Spirit as an unmerited gift of grace, emphasizing justification by faith alone (sola fide) rather than human effort or ascetic practices.
+   - **Scripture-Centered Growth**: Protestants emphasize personal Bible study, prayer, and community worship as means of growing in Christlikeness.
+
+
+#### Points of Agreement
+
+1. **Salvation as Transformation**:
+   - All three traditions agree that salvation involves transformation into the image of Christ, though the terms and emphases vary.
+   - They affirm that this transformation is enabled by divine grace, not human merit.
+
+2. **Union with God**:
+   - All branches uphold the idea of a profound relationship or union with God as the goal of salvation. While Eastern Orthodoxy focuses on God's energies, Catholicism frames it as the *beatific vision*, and Protestants emphasize union with Christ.
+
+3. **Role of Grace**:
+   - Grace is universally seen as the cornerstone of transformation. Each tradition emphasizes its necessity, even if they differ on how grace operates.
+
+4. **Christ-Centeredness**:
+   - Jesus Christ is recognized as the mediator and model for transformation in all traditions.
+
+
+#### Points of Conflict
+
+1. **Nature of Union**:
+   - **Orthodox Christianity**: Views theosis as participation in God’s energies while maintaining the essence-energies distinction.
+   - **Roman Catholicism**: Focuses on elevation through grace, culminating in the *beatific vision* without explicit mention of the energies-essence framework.
+   - **Protestant Christianity**: Generally avoids metaphysical distinctions and instead focuses on personal and spiritual union with Christ.
+
+2. **Means of Grace**:
+   - **Orthodox and Catholic**: Emphasize sacraments, liturgical practices, and ascetic efforts as pathways for receiving grace.
+   - **Protestants**: Stress faith alone (sola fide) as the means of receiving grace, with less emphasis on sacraments or ascetic practices.
+
+3. **Role of Human Cooperation**:
+   - **Orthodox and Catholic**: Advocate for synergy, where human effort cooperates with divine grace in the transformation process.
+   - **Protestants**: Typically emphasize the monergistic work of God, downplaying human cooperation to avoid implying works-based salvation.
+
+4. **Terminology and Scope**:
+   - Eastern Orthodoxy uniquely uses "theosis" as a central theological term.
+   - Roman Catholicism uses related concepts like sanctification and the *beatific vision* but does not frequently employ "theosis."
+   - Protestantism avoids terms like "deification" due to perceived theological risks and instead emphasizes sanctification or Christlikeness.
 
 ---
 
@@ -314,7 +365,7 @@ Theosis reveals the foundational truth that salvation is not merely about being 
 Theosis is not about becoming gods in essence but about becoming fully human, living as God originally intended—holy, righteous, and united with Him. The ultimate truth of the Gospel is that God desires to restore what was lost in the Fall, to bring creation back into harmony with its Creator. This journey of transformation is possible through Christ’s work, and it is made real through the ongoing work of the Holy Spirit, who enables believers to participate in God's divine life. The Church, as the body of Christ, serves as the agent through which this truth is experienced and lived out in community.
 
 #### **#Jesus**
-Theosis ultimately centers on Jesus Christ, who is both the means and the goal of the believer’s transformation. **Colossians 1:27** states: *“To whom God willed to make known what is the riches of the glory of this mystery among the Gentiles, which is Christ in you, the hope of glory.”* Christ is the model of theosis, the one who fully embodies the divine nature in human form. Through His life, death, and resurrection, He not only reconciled humanity to God but also made it possible for humans to partake in the divine nature. The goal of theosis is to become like Christ, to reflect His holiness and glory. 
+Theosis ultimately centers on Jesus Christ, who is both the means and the goal of the believer’s transformation. **Colossians 1:27** states: *“To whom God willed to make known what is the riches of the glory of this mystery among the Gentiles, which is Christ in you, the hope of glory.”* Christ is the model of theosis, the one who fully embodies the divine nature in human form. Through His life, death, and resurrection, He not only reconciled humanity to God but also made it possible for humans to partake in the divine nature. The goal of theosis is to become like Christ, to reflect His holiness and glory.
 
 The work of the Holy Spirit brings believers into this union with Christ, continually conforming them to His image. **Romans 6:5** reinforces this idea: *“For if we have become united with Him in the likeness of His death, certainly we shall also be in the likeness of His resurrection.”* This union with Christ is the essence of theosis—it is through Him that believers are transformed. As Jesus Himself prayed in **John 17:24**, *“Father, I desire that they also, whom You have given Me, be with Me where I am, so that they may see My glory.”* The vision of the believer’s future is to be fully united with Christ in His glory, experiencing the fullness of divine life in eternity.
 
