@@ -4,9 +4,9 @@
 
 ### *Introduction*
 
-*Theosis*, from the Greek *θέωσις*, meaning “divinization” or “deification,” refers to the transformative process by which believers partake in the divine nature (2 Peter 1:4) and grow into Christ’s likeness. Rooted in the Gospel and central to Christian discipleship, theosis calls humanity to reflect God’s glory through grace-enabled communion with the Triune God. This doctrine does not imply that believers become God in essence, which remains solely His, but rather that they grow into the fullness of humanity as intended by God—becoming more Christlike through His divine life.
+*Theosis*, from the Greek *θέωσις*, meaning “divinization” or “deification,” refers to the transformative process by which believers partake in the divine nature (2 Peter 1:4) and grow into Christ’s likeness. Rooted in the Gospel and central to Christian discipleship, theosis calls humanity to reflect God’s glory through grace-enabled communion with the Triune God.
 
-This thesis explores theosis as the believer’s holy calling to reflect God’s glory and grow into Christ’s likeness through communion with Him. It examines the biblical and historical foundations, engages perspectives across Christian traditions, and highlights practical applications of theosis for every believer’s journey of faith.
+This doctrine does not imply that believers become God in essence, which remains solely His, but rather that they grow into the fullness of humanity as intended by God—becoming more Christlike through participation in His divine life. This thesis explores theosis as the believer’s holy calling to reflect God’s glory and grow into Christ’s likeness through communion with Him. It examines the biblical and historical foundations, engages perspectives across Christian traditions, and highlights practical applications of theosis for every believer’s journey of faith.
 
 ---
 
@@ -16,7 +16,7 @@ This thesis explores theosis as the believer’s holy calling to reflect God’s
 Theosis is the process by which humans, created in the image of God, are restored to their full potential in Christ, participating in God’s divine life without compromising His transcendence. As St. Athanasius expressed: *“God became man so that man might become god.”*
 
 #### Clarification of Misunderstandings
-Theosis does not mean that believers become God in essence or merge into His being. Instead, it refers to participation in God’s energies—His grace, life, and presence—while preserving the distinction between Creator and creation. This aligns with the Gospel’s vision of restored communion with God and emphasizes transformation into Christlikeness.
+Theosis does not mean that believers become God in essence or merge into His being. Instead, it refers to participation in God’s **energies**—His grace, life, and presence—while preserving the distinction between Creator and creation. This aligns with the Gospel’s vision of restored communion with God and emphasizes transformation into Christlikeness.
 
 ---
 
@@ -27,10 +27,14 @@ Theosis is deeply rooted in Scripture, revealing how believers grow into Christ�
 #### Key Biblical Teachings
 
 1. **Creation and Humanity’s Purpose**: Humanity was created in God’s image to reflect His glory (Genesis 1:26-27; Psalm 8:4-6). Theosis fulfills this original calling by restoring and perfecting God’s image in us.
-2. **Fall and Restoration through Christ**: Sin marred God’s image in humanity, but Christ’s incarnation, death, and resurrection restore and elevate it (Romans 8:29; Colossians 3:10).
+2. **Fall and Restoration through Christ**: Sin marred God’s image in humanity, but Christ’s incarnation, death, and resurrection restore and elevate it (Romans 3:23; Colossians 3:10).
 3. **Participation in the Divine Nature**: Through Christ and the Holy Spirit, believers are transformed into His image, reflecting His glory (2 Peter 1:4; 2 Corinthians 3:18).
 4. **Union with Christ**: Abiding in Christ is essential for transformation, as believers are united with Him through faith, baptism, and the Eucharist (John 15:4-5; Romans 6:5).
 5. **Glorification**: The final stage of theosis culminates in believers’ full conformity to Christ’s image (1 John 3:2; Philippians 3:21).
+
+#### Expanded Scriptural Themes
+- **Sanctification by the Spirit**: The Holy Spirit sanctifies and empowers believers (Romans 8:11; 2 Thessalonians 2:13).
+- **Hope of Eternal Union**: The ultimate goal is glorification, where believers dwell with God in eternal communion (Revelation 21:3-4).
 
 #### Practical Implications
 - **Reflecting God’s Character**: Believers are called to live holy lives that mirror God’s love, truth, and justice.
@@ -39,16 +43,44 @@ Theosis is deeply rooted in Scripture, revealing how believers grow into Christ�
 
 ---
 
-### III. Historical and Theological Foundations
+### III. Trinitarian Foundations
 
-The doctrine of theosis has been articulated by Church Fathers and theologians throughout history, offering a robust theological framework:
+Theosis is fundamentally Trinitarian, involving the unique yet unified work of the Father, Son, and Holy Spirit:
+
+1. **God the Father**: The source of divine life and initiator of salvation.
+   - **Creation**: Humanity was created in the Father’s image to reflect His glory (Genesis 1:26-27).
+   - **Adoption**: Through Christ, the Father adopts believers as His children, making them heirs to divine life (Romans 8:15-17).
+2. **God the Son**: The mediator of theosis.
+   - **Incarnation**: Christ’s union of divinity and humanity makes theosis possible (John 1:14).
+   - **Union with Christ**: Believers share in Christ’s death and resurrection (Romans 6:3-5).
+3. **God the Holy Spirit**: The sanctifier and empowerer.
+   - **Indwelling**: The Spirit resides in believers, enabling transformation (1 Corinthians 6:19).
+   - **Gifting and Illumination**: The Spirit equips and guides believers into all truth (1 Corinthians 12:4-11).
+
+---
+
+### IV. Historical and Theological Foundations
+
+Theosis has been articulated throughout history, with profound contributions from the Church Fathers:
 
 1. **St. Athanasius**: Emphasized that Christ’s incarnation made divine life accessible to humanity.
 2. **St. Gregory of Nyssa**: Developed the concept of endless progression toward God’s likeness, reflecting a lifelong journey of transformation.
 3. **St. Maximus the Confessor**: Articulated the synergy between divine grace and human will in theosis.
 4. **St. Gregory Palamas**: Distinguished between God’s essence (inaccessible) and His energies (accessible through grace).
 
-These contributions highlight that theosis is both a mystical reality and a practical journey, deeply rooted in the Church’s tradition.
+Their insights reveal the mystical depth and practical dimensions of theosis.
+
+---
+
+### V. The Stages of Theosis
+
+Theosis unfolds through three interconnected stages:
+
+1. **Purification**: Cleansing from sin through repentance and justification (Psalm 51:10; Romans 3:24).
+2. **Illumination**: Growing in holiness and understanding through sanctification (2 Corinthians 3:18).
+3. **Union**: Full communion with God in glorification (Philippians 3:21; Revelation 21:3-4).
+
+These stages align with justification, sanctification, and glorification in Christian theology, reflecting the progressive work of divine grace.
 
 ---
 
@@ -65,18 +97,6 @@ Protestants frame theosis as sanctification, achieved through union with Christ 
 
 #### Shared Foundations
 All traditions agree on the transformative power of God’s grace and the believer’s calling to reflect Christ’s image.
-
----
-
-### V. The Stages of Theosis
-
-Theosis unfolds through three stages:
-
-1. **Purification**: Cleansing from sin through repentance and justification (Psalm 51:10; Romans 3:24).
-2. **Illumination**: Growing in holiness and understanding through sanctification (2 Corinthians 3:18).
-3. **Union**: Full communion with God in glorification (1 John 3:2; Revelation 21:3-4).
-
-These stages reflect the believer’s progressive journey of becoming more like Christ, empowered by the Holy Spirit.
 
 ---
 
