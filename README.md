@@ -1,8 +1,7 @@
 ## The Thesis of Theosis: Our Holy Calling to Reflect God’s Glory and Grow into Christ's Likeness through Communion with Him
 
----
 
-### Introduction
+### *Introduction*
 *Theosis*, derived from the Greek word *θέωσις* meaning “divinization” or “deification,” is the transformative process by which believers partake in the divine nature (2 Peter 1:4) and grow into the likeness of Christ. Rooted in the Gospel and central to Christian discipleship, theosis highlights humanity's holy calling to reflect God's glory through grace-enabled communion with the Triune God. While often misunderstood as equating humans with God in essence, theosis is properly defined as the believer’s journey of becoming more fully human, as God intended, through participation in His divine life.
 
 This doctrine emphasizes the transformative union between humanity and God, made possible by Jesus Christ’s incarnation, life, death, and resurrection. Theosis is the ultimate goal of human life and salvation. It is not a reward but a restoration of humanity's original calling to communion with God.
@@ -289,7 +288,7 @@ Both individually and collectively, the Church plays an indispensable role in th
 
 ---
 
-### **VerseGPT Analysis of Theosis: A Comprehensive Theological Overview**
+### *VerseGPT Analysis of Theosis: A Comprehensive Theological Overview*
 
 
 #### **#Verse**
@@ -321,12 +320,12 @@ The work of the Holy Spirit brings believers into this union with Christ, contin
 
 ---
 
-### Conclusion
+### *Conclusion*
 Theosis encapsulates the believer’s holy calling to reflect God’s glory and grow into Christ’s likeness through communion with Him. Rooted in the Gospel and empowered by grace, theosis is realized through the work of the Trinity, the ministry of the church, and the believer’s faithful pursuit of spiritual disciplines. It is not an abstract theological ideal but a lived reality that fulfills God’s purpose for humanity: to partake in His divine life and reveal His glory to the world.
 
 ---
 
-### Narration
+### *Narration*
 Theosis is one of the most beautiful truths of our faith. It’s the idea that God not only saves us from sin but invites us into something far greater—union with Him. It’s rooted in Scripture, where we see in 2 Peter 1:4 that we are called to become “partakers of the divine nature.” This doesn’t mean we become God in essence, but rather, through His grace, we are transformed to reflect His glory and grow into the likeness of Christ. From the very beginning, humanity was created in God’s image, meant to reflect His holiness and love. But sin marred that image, breaking our relationship with Him. Yet, through Jesus Christ—His incarnation, life, death, and resurrection—this broken relationship was restored, and the door to divine communion was opened.
 
 What’s amazing about this process, this journey of theosis, is that it’s not just about something we’ll experience in heaven. It’s a reality we can begin living now. When we talk about salvation, it’s not just about being forgiven of our sins—it’s about being renewed, reshaped, and restored to the full humanity that God intended. Through Christ, we are not only cleansed but elevated to share in the divine life. This is why St. Athanasius famously said, “God became man so that man might become god.” Not in essence, but in character, holiness, and love.
