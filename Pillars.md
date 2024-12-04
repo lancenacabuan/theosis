@@ -44,7 +44,7 @@ Holiness is not merely an external display of good behavior; it is an internal t
 
 Holiness is a response to God’s call and a central theme in discipleship. As disciples, we are called to forsake sin and live according to God’s will. Romans 12:1-2 encourages believers to offer our bodies as a living sacrifice, holy and pleasing to God, and not to conform to the patterns of this world. Holiness flows from the heart and is a life lived in obedience to God’s Word.
 
-This is the process of *Theosis* working itself out—through the purification of our hearts and minds, through spiritual disciplines such as prayer, fasting, and repentance. In Orthodox theology, this purification is part of the synergy between divine grace and human effort, helping us to become more receptive to God’s transformative work.
+This is the process of *Theosis* working itself out—through the purification of our hearts and minds, through spiritual disciplines such as Bible reading, prayer, fasting, and repentance. In Orthodox theology, this purification, generally known as *sanctification*, is part of the synergy between divine grace and human effort, helping us to become more receptive to God’s transformative work.
 
 *Practical Application*:
 - Examine your life regularly and surrender areas where sin needs to be addressed.
@@ -72,6 +72,6 @@ It is through this communion that we partake in God’s divine energies—His ac
 
 *Theosis* is the beautiful process by which we are transformed into the likeness of Christ, empowered by the Holy Spirit. It is not an abstract theological concept but a practical, spiritual reality that shapes every part of the Christian life. Through *Exalting Our Creator*, *Emulating Christlikeness*, *Exemplifying Consecration*, and *Embodying Communion*, we grow into the people God created us to be—image-bearers of His glory.
 
-This process is both a present reality and a future hope. As we live out *Theosis* in our daily lives, we anticipate the ultimate fulfillment of this transformation when we see Christ face to face (1 John 3:2). Until that day, we press on with joy, confidence, and gratitude, knowing that God is faithfully at work within us to conform us to the image of His Son.
+This process is both a present reality and a future hope. As we live out *Theosis* in our daily lives, we anticipate the ultimate fulfillment of this transformation when we see Christ face to face (1 John 3:2). Until that day, we press on with joy, confidence, gratitude, and perseverance, knowing that God is faithfully at work within us to conform us to the image of His Son.
 
-Discipleship is the ongoing journey of walking with Christ, learning from Him, and becoming like Him. As we live out these pillars of *Theosis*, let us reflect God’s glory in all we do and trust in His power to complete the good work He has begun in us. Let us rest in the assurance that the God who called us to this great purpose will bring it to fruition, for His glory and our eternal good. Amen.
+*Discipleship* is the ongoing journey of walking with Christ, learning from Him, following Him, and becoming like Him. As we live out these pillars of *Theosis*, let us reflect God’s glory in all we do and trust in His power to complete the good work He has begun in us. Let us rest in the assurance that the God who called us to this great purpose will bring it to fruition, for His glory and our eternal good. Amen.
