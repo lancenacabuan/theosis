@@ -52,8 +52,6 @@ Christ’s role as the mediator (1 Timothy 2:5) is central to this reconciliatio
 ### **Theosis and Discipleship**
 Union with God through Christ transforms the believer’s identity and purpose. Discipleship becomes the means by which this union is deepened and expressed in daily life. Jesus’ call to “deny yourself, take up your cross, and follow Me” (Matthew 16:24) reflects the process of theosis, where believers cooperate with God’s grace to overcome sin and grow in holiness.
 
-Through discipleship, believers learn to:
-
 Union with God is not merely the final goal but the essence of the believer’s life in Christ, restoring humanity to its original purpose and enabling believers to fulfill their holy calling.
 
 ---
