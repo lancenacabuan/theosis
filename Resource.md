@@ -1,4 +1,4 @@
-## The Thesis of Theosis: Our Holy Calling to Reflect God’s Glory and Grow into Christ's Likeness through Communion with Him
+## Theosis: Our Holy Calling to Reflect God’s Glory and Grow into Christ's Likeness through Communion with Him
 
 ### *Introduction*
 *Theosis*, derived from the Greek word *θέωσις* meaning “divinization” or “deification,” is the transformative process by which believers partake in the divine nature (2 Peter 1:4) and grow into the likeness of Christ. Rooted in the Gospel and central to Christian discipleship, theosis highlights humanity's holy calling to reflect God's glory through grace-enabled communion with the Triune God. While often misunderstood as equating humans with God in essence, theosis is properly defined as the believer’s journey of becoming more fully human, as God intended, through participation in His divine life.
