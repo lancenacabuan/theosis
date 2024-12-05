@@ -1,4 +1,4 @@
-# Theosis: Our Holy Calling to Reflect God’s Glory and Grow into Christ's Likeness through Communion with Him
+# The Thesis of Theosis: Our Holy Calling to Reflect God’s Glory and Grow into Christ's Likeness through Communion with Him
 
 ---
 
