@@ -69,15 +69,11 @@ Theosis reveals salvation’s ultimate purpose: union with God. Christ restores 
 
 ---
 
-You're correct that Section X, titled **"Four Pillars of Theosis: A Framework for Holistic Discipleship,"** is missing from the concise version. Below is a condensed version of Section X, incorporating its key elements:
-
----
-
 ## **X. Four Pillars of Theosis: A Framework for Holistic Discipleship**
-1. **Exalting the Creator**: Reflect God’s glory in all aspects of life (1 Corinthians 10:31). This involves daily gratitude, worship, and pursuing excellence as acts of devotion.
-2. **Emulating Christlikeness**: Grow into the likeness of Christ through intentional discipleship (Romans 8:29). Study Scripture, practice humility and forgiveness, and seek mentorship to reflect Christ’s character.
-3. **Exemplifying Consecration**: Live a holy life set apart for God (1 Peter 1:15-16). Pursue spiritual disciplines such as prayer, fasting, and repentance, fostering purity of heart and mind.
-4. **Embodying Communion**: Abide in Christ through prayer, sacraments, and union with the Holy Spirit (John 15:5). The Eucharist serves as a profound expression of this communion.
+1. **Exalting the Creator**: Glorify God in every aspect of life by dedicating actions, thoughts, and worship to Him (1 Corinthians 10:31). Gratitude and excellence in daily endeavors reflect His majesty.
+2. **Emulating Christlikeness**: Transform through discipleship by imitating Christ’s humility, love, and forgiveness. This sanctification process unfolds through study, prayer, and fellowship (2 Corinthians 3:18).
+3. **Exemplifying Consecration**: Pursue holiness by resisting sin and aligning life with God’s will (1 Peter 1:16). Spiritual disciplines such as repentance, fasting, and prayer nurture a life set apart for God.
+4. **Embodying Communion**: Deepen union with Christ through constant fellowship and participation in sacraments like the Eucharist. This communion sustains and empowers the believer’s transformation (John 15:5).
 
 ---
 
