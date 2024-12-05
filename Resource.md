@@ -268,7 +268,7 @@ Holiness is a defining mark of *Theosis*, as believers are called to live lives 
 
 ---
 
-### 4. **Embodying Communion: Union with Christ**
+### 4. **Embodying Communion: Relationship with Christ**
 The final pillar focuses on the believer’s intimate communion with Christ, which is both the foundation and fulfillment of *Theosis*. As Jesus declared, *“Abide in Me, and I in you”* (John 15:5), discipleship is grounded in this union, empowering believers to reflect God’s character and fulfill His purposes. Through the Holy Spirit, this communion enables participation in God’s divine energies, drawing believers deeper into His transformative love.
 
 #### *Practical Applications*:
