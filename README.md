@@ -273,7 +273,7 @@ The doctrine of *theosis* is not confined to one Christian tradition; its princi
 - **Practical Application**: Practices like personal Bible study, prayer, and community worship are central to spiritual growth.
 **Key Insight**: Protestant traditions focus on *theosis* through the lens of justification by faith and Spirit-empowered sanctification.
 
-### **4. Theosis as a Common Calling Across Christian Traditions**
+### **Theosis as a Common Calling Across Christian Traditions**
 While *theosis* is understood and articulated differently across various Christian traditions, it remains a shared calling for all believers. In Eastern Orthodox, Roman Catholic, and Protestant thought, the ultimate goal of salvation is communion with God, achieved through divine grace and spiritual transformation. Despite differences in doctrinal frameworks and terminology, all branches recognize the believer’s journey toward Christlikeness and the restoration of God’s image. In this sense, *theosis* transcends denominational boundaries, uniting Christians in their pursuit of holiness, deepening relationship with God, and living out the love of Christ in the world. This common pursuit reflects the essence of Christian discipleship: to glorify God and grow into the fullness of His likeness.
 
 ---
