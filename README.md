@@ -115,7 +115,7 @@ Union represents the culmination of *theosis*, where believers experience comple
 
 Union with God is both the goal and fulfillment of *theosis*, where believers partake fully in His divine life, reflecting His glory for eternity.
 
-### **Interconnection of the Stages**:
+### **Interconnection of the Stages**
 These stages are not strictly linear but interwoven throughout the Christian life. Purification lays the foundation for illumination, while illumination deepens one’s communion with God, pointing toward the ultimate union. As believers progress, they continually return to purification and illumination, growing closer to God in every aspect of their being.
 
 The journey of *theosis* calls believers to embrace this process with faith and commitment, trusting in God’s grace to transform them into His image from glory to glory.
