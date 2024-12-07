@@ -15,9 +15,11 @@ This thesis will explore the biblical, historical, and theological foundations o
 
 ## **I. Definition, Clarification, and Implication**
 ### **Simple Theological Definition**
-Theosis, derived from the Greek *θέωσις* (meaning “divinization” or “deification”), refers to the transformative process by which humans, created in God’s image, are restored to their full potential in Christ. Through God’s grace, believers are drawn closer to Him, sharing in His life and goodness while maintaining their distinct identity as His creation.
+*Theosis*, derived from the Greek *θέωσις* (meaning “divinization” or “deification”), refers to the transformative process by which humans, created in God’s image, are restored to their full potential in Christ. Through God’s grace, believers are drawn closer to Him, sharing in His life and goodness while maintaining their distinct identity as His creation.
 
 As St. Athanasius famously stated, *“God became man so that man might become god.”* This does not mean that humans become God in essence, but rather that they are transformed to reflect His holiness, love, and righteousness through their relationship with Christ.
+
+Theosis is the transformative journey of being united with God, partaking in His divine nature through His grace, and growing into the likeness of Christ to fulfill our true purpose.
 
 ### **Clarifying the Creator-Creation Distinction**
 A key aspect of theosis is maintaining the distinction between Creator and creation. Believers do not become God in essence or merge with Him. Instead, they participate in His **energies**—His grace, life, and presence—while God’s essence remains wholly transcendent and inaccessible.
