@@ -384,3 +384,24 @@ The implications of *theosis* extend far beyond personal spirituality. It calls 
 Ultimately, the journey of *theosis* is a call to glorify God and emulate Christ. As believers grow into His likeness, they become living witnesses of His love, holiness, and grace, offering the world a glimpse of the transformative power of the Gospel. This sacred calling is both a privilege and a responsibility, leading to the ultimate fulfillment of humanity’s purpose: to glorify God and partake in eternal communion with Him.
 
 **Glorify God. Emulate Christ.** This is the essence of the Christian life and the heartbeat of *theosis*. It is a journey of transformation that begins now and culminates in the eternal joy of union with our Creator.
+
+---
+
+## *Prayer*
+Heavenly Father,
+
+You have created us in Your image and called us to reflect Your glory. Through Your abundant grace, You have invited us to partake in Your divine nature, drawing us into a life of communion with You. We humbly thank You for the gift of transformation, made possible through the life, death, and resurrection of Your Son, Jesus Christ.
+
+Lord, purify our hearts and cleanse us from sin so we may walk in holiness. Illuminate our minds with Your truth, that we may grow in wisdom and understanding. Strengthen us to abide in Christ, the true vine, so we may bear fruit that glorifies Your name.
+
+Holy Spirit, empower us to cooperate with Your work in our lives. Teach us to live by faith, prayer, and obedience as we journey toward Christlikeness. Help us to reflect the character of our Savior in our thoughts, words, and actions, that we may shine as beacons of Your love and grace in a broken world.
+
+O Triune God, unite us with Your life-giving presence, and deepen our relationship with You. May we never lose sight of our ultimate calling: to glorify You and share in the joy of eternal communion with You. Sustain us through trials and transform us each day into the image of Christ.
+
+We dedicate ourselves to this holy calling with humility and gratitude, trusting in Your promise to complete the good work You have begun in us.
+
+For Yours is the glory, the honor, and the praise, now and forevermore.
+
+In Jesus' name,
+
+Amen.
