@@ -387,7 +387,9 @@ Ultimately, the journey of *theosis* is a call to glorify God and emulate Christ
 
 ---
 
-## *Prayer*
+## *Doxology and Prayer*
+Glory be to the Father, who created us in His image; to the Son, who redeemed us through His incarnation, death, and resurrection; and to the Holy Spirit, who sanctifies us and draws us into divine communion, now and forevermore. Amen.
+
 Heavenly Father,
 
 You have created us in Your image and called us to reflect Your glory. Through Your abundant grace, You have invited us to partake in Your divine nature, drawing us into a life of communion with You. We humbly thank You for the gift of transformation, made possible through the life, death, and resurrection of Your Son, Jesus Christ.
