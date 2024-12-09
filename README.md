@@ -22,11 +22,11 @@ As St. Athanasius famously stated, *“God became man so that man might become g
 Theosis is the transformative journey of being united with God, partaking in His divine nature through His grace, and growing into the likeness of Christ to fulfill our true purpose.
 
 ### **Clarifying the Creator-Creation Distinction**
-A key aspect of theosis is maintaining the distinction between Creator and creation. Believers do not become God in essence or merge with Him. Instead, they participate in His **energies**—His grace, life, and presence—while God’s essence remains wholly transcendent and inaccessible.
+A key aspect of *theosis* is maintaining the distinction between Creator and creation. Believers do not become God in essence or merge with Him. Instead, they are invited to participate in His **energies**—His grace, life, and presence—while God’s essence remains wholly transcendent, unknowable, and distinct from creation.
 
-St. Gregory Palamas articulated this distinction, emphasizing that theosis involves sharing in God’s uncreated energies, such as His love and power, without compromising His unique essence. This understanding safeguards both the transcendence of God and the relational intimacy believers experience with Him.
+St. Gregory Palamas articulated this distinction, emphasizing that *theosis* involves sharing in God’s uncreated energies—such as His love, wisdom, and transformative power—without compromising the unique essence of God. This framework preserves the Creator-creature divide while affirming God’s intimate and relational nature.
 
-To illustrate, consider the warmth and light of the sun: humanity can experience and benefit from its rays (God’s energies) without touching the sun’s core (God’s essence). This distinction highlights the accessibility of God’s life and grace while preserving His divine mystery.
+To illustrate, consider the warmth and light of the sun: humanity can experience and benefit from its rays (God’s energies) without ever accessing or altering the sun’s core (God’s essence). This analogy emphasizes that believers can encounter God’s life and grace in a way that transforms them while safeguarding His divine mystery and transcendence. Through His energies, believers are empowered to reflect His character and grow in holiness.
 
 ### **Partakers of the Divine Nature**
 Theosis is grounded in the biblical promise found in **2 Peter 1:4**, which declares that believers may become *“partakers of the divine nature.”* This does not imply a literal or ontological union with God’s essence but signifies a sharing in His grace and presence, enabling believers to reflect His image and fulfill their created purpose.
@@ -43,13 +43,13 @@ To understand how believers partake in the divine nature, it is essential to dis
 Participation in God’s energies allows believers to experience His transformative power while preserving the Creator-creature distinction. For instance, believers can encounter God’s love, wisdom, and holiness through prayer, Scripture, and the sacraments, all of which are manifestations of His uncreated energies.
 
 ### **Synergism vs. Monergism**
-Theosis operates within the theological framework of **synergism**, which emphasizes the cooperative relationship between divine grace and human will. God initiates and empowers transformation, but believers actively respond through faith, obedience, and spiritual disciplines.
+Theosis operates within the theological framework of **synergism**, which highlights the cooperative relationship between divine grace and human will. However, this synergy must be understood as entirely grace-driven: God initiates, sustains, and empowers the transformation, while believers respond through faith, obedience, and spiritual disciplines as enabled by His grace.
 
-St. Maximus the Confessor described this synergy as the harmonious work of God’s uncreated energies and human effort. For example, while salvation and transformation are ultimately gifts of grace, believers participate actively by engaging in practices like prayer, repentance, and worship.
+St. Maximus the Confessor described this synergy as the harmonious work of God’s uncreated energies and human response. For example, salvation and transformation are fundamentally gifts of grace, with believers’ participation occurring solely through the power and enabling of the Holy Spirit, as affirmed in **Philippians 2:12-13**: *“Work out your salvation with fear and trembling; for it is God who is at work in you, both to will and to work for His good pleasure.”*
 
-In contrast, **monergism**, which attributes salvation solely to God’s action without human contribution, is less emphasized in theosis. Instead, theosis underscores the relational nature of transformation, where God’s sovereign grace enables human cooperation without diminishing His divine authority.
+In contrast, **monergism**, which attributes salvation entirely to God’s action without any human response, is less emphasized in theosis. Yet, even within synergism, theosis underscores that human cooperation is always a response to God’s sovereign grace, never an independent effort.
 
-To illustrate, consider a gardener tending to a plant. God provides the essential elements—sunlight, water, and soil (grace)—but the gardener (believer) must still nurture the plant by watering and pruning it (faith and obedience).
+To illustrate, consider a gardener tending to a plant. God provides the essential elements—sunlight, water, and soil (grace)—and even enables the gardener’s work. The gardener (believer) nurtures the plant by watering and pruning (faith and obedience), but only because the resources and ability are divinely supplied.
 
 ### **Implications of the Main Verse**
 *“For by these He has granted to us His precious and magnificent promises, so that by them you may become partakers of the divine nature, having escaped the corruption that is in the world by lust.”* – **2 Peter 1:4**
@@ -128,7 +128,7 @@ Theosis is fundamentally a relational journey, where salvation extends beyond fo
 ### **Union and Restoration**
 Humankind was created in God’s image (Genesis 1:26-27) to live in perfect communion with Him. Sin, however, disrupted this divine relationship, resulting in spiritual and physical separation from God (Romans 6:23; Isaiah 59:2). Through His incarnation, death, and resurrection, Jesus Christ restored this broken relationship (2 Corinthians 5:18-19). As the mediator between God and humanity (1 Timothy 2:5), Christ unites divine and human natures, enabling believers to partake in divine life.
 
-Restoration through Christ invites believers into an active and ongoing relationship. This union transforms their lives, enabling them to reflect His glory and grow in holiness. For instance, daily prayer and meditation on Scripture serve as relational practices that nurture this transformative connection.
+This union is initiated and sustained by God’s grace, as Jesus declared in John 15:16: *“You did not choose Me, but I chose you.”* Through this divine initiative, believers are invited into active communion with God, which transforms their lives and enables them to reflect His glory. While believers participate in practices like prayer and worship, these responses are made possible by God’s enabling power, ensuring that union with Christ remains a gift of grace.
 
 ### **Fellowship with God and His Church**
 Theosis is not an isolated pursuit but deeply rooted in community. Believers are united with God through Christ, and this union extends to the Church, which is the body of Christ. Within this fellowship, believers build one another up in love and unity (Ephesians 4:16), mirroring the relational unity of the Trinity.
@@ -136,9 +136,9 @@ Theosis is not an isolated pursuit but deeply rooted in community. Believers are
 For example, participation in the sacraments—such as the Eucharist—fosters both personal communion with God and communal unity with the Church. The saints, both past and present, also form a “great cloud of witnesses” (Hebrews 12:1) that encourages believers in their journey toward theosis.
 
 ### **Living the Relational Reality**
-Communion with God transforms daily life. It inspires believers to exhibit Christlike love in relationships, whether through acts of service, forgiveness, or kindness. For example, seeking reconciliation during conflicts reflects God’s healing work in humanity. Similarly, nurturing fellowship with others strengthens spiritual growth, creating a community that reflects God’s love and holiness.
+Communion with God transforms daily life, but it is essential to remember that this relationship is initiated and sustained by His grace. As Jesus says in **John 15:16**, *“You did not choose Me, but I chose you.”* The believer’s role is to abide in this relationship through prayer, Scripture meditation, and obedience, trusting in the Holy Spirit to work within them. This grace-driven union empowers believers to reflect Christ’s love and holiness in their actions.
 
-In essence, theosis emphasizes salvation as a relationship—one that draws believers into a dynamic, life-giving communion with God and others.
+For instance, seeking reconciliation during conflicts reflects God’s healing work in humanity. Similarly, nurturing fellowship with others strengthens spiritual growth and demonstrates the grace of God active in relationships.
 
 ---
 
