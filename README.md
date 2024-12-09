@@ -301,6 +301,8 @@ The early Church Fathers played a pivotal role in shaping the doctrine of *theos
 
 **Key Insight**: Believers can experience the transformative power of *theosis* here and now.
 
+The Church Fathers shaped *theosis* as the journey of reflecting God’s image and growing into Christ’s likeness. They emphasized the Incarnation’s restorative role (Athanasius, Irenaeus), the lifelong transformation into holiness (Gregory of Nyssa, Maximus), the balance between God’s transcendence and relational intimacy (Palamas, Pseudo-Dionysius), and the sacramental and experiential aspects of divine communion (Chrysostom, Symeon). Their teachings present *theosis* as a grace-filled, practical call to holiness, inviting believers into deeper union with God through faith and spiritual growth.
+
 ---
 
 ## **VII. Ecumenical Perspectives**
