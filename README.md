@@ -129,7 +129,7 @@ Theosis is fundamentally a relational journey, where salvation extends beyond fo
 ### **Union and Restoration**
 Humankind was created in God’s image (Genesis 1:26-27) to live in perfect communion with Him. Sin, however, disrupted this divine relationship, resulting in spiritual and physical separation from God (Romans 6:23; Isaiah 59:2). Through His incarnation, death, and resurrection, Jesus Christ restored this broken relationship (2 Corinthians 5:18-19). As the mediator between God and humanity (1 Timothy 2:5), Christ unites divine and human natures, enabling believers to partake in divine life.
 
-This union is initiated and sustained by God’s grace, as Jesus declared in John 15:16: *“You did not choose Me, but I chose you.”* Through this divine initiative, believers are invited into active communion with God, which transforms their lives and enables them to reflect His glory. While believers participate in practices like prayer and worship, these responses are made possible by God’s enabling power, ensuring that union with Christ remains a gift of grace.
+Restoration through Christ invites believers into an active and ongoing relationship. This union transforms their lives, enabling them to reflect His glory and grow in holiness. As believers respond to God’s grace, daily prayer and meditation on Scripture become relational practices that nurture this transformative connection. It is God’s enabling grace that empowers this growth, as believers cooperate with the Holy Spirit (Philippians 2:12-13).
 
 ### **Fellowship with God and His Church**
 Theosis is not an isolated pursuit but deeply rooted in community. Believers are united with God through Christ, and this union extends to the Church, which is the body of Christ. Within this fellowship, believers build one another up in love and unity (Ephesians 4:16), mirroring the relational unity of the Trinity.
@@ -137,9 +137,9 @@ Theosis is not an isolated pursuit but deeply rooted in community. Believers are
 For example, participation in the sacraments—such as the Eucharist—fosters both personal communion with God and communal unity with the Church. The saints, both past and present, also form a “great cloud of witnesses” (Hebrews 12:1) that encourages believers in their journey toward theosis.
 
 ### **Living the Relational Reality**
-Communion with God transforms daily life, but it is essential to remember that this relationship is initiated and sustained by His grace. As Jesus says in **John 15:16**, *“You did not choose Me, but I chose you.”* The believer’s role is to abide in this relationship through prayer, Scripture meditation, and obedience, trusting in the Holy Spirit to work within them. This grace-driven union empowers believers to reflect Christ’s love and holiness in their actions.
+Communion with God transforms daily life. It inspires believers to exhibit Christlike love in relationships, whether through acts of service, forgiveness, or kindness. For example, seeking reconciliation during conflicts reflects God’s healing work in humanity. Similarly, nurturing fellowship with others strengthens spiritual growth, creating a community that reflects God’s love and holiness.
 
-For instance, seeking reconciliation during conflicts reflects God’s healing work in humanity. Similarly, nurturing fellowship with others strengthens spiritual growth and demonstrates the grace of God active in relationships.
+In essence, theosis emphasizes salvation as a relationship—one that draws believers into a dynamic, life-giving communion with God and others. This process is sustained by God’s grace, with believers actively responding in faith and obedience (Romans 6:5, 1 Thessalonians 5:23).
 
 ---
 
