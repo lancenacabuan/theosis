@@ -302,25 +302,25 @@ The early Church Fathers played a pivotal role in shaping the doctrine of *theos
 The doctrine of *theosis* is not confined to one Christian tradition; its principles resonate across denominational lines, offering diverse interpretations that enrich our understanding of salvation and spiritual growth.
 
 ### **1. Eastern Orthodox Christianity**
-- **Centrality of Theosis**: For Orthodox Christians, *theosis* is foundational, viewing salvation as participation in the divine life rather than merely the forgiveness of sins.
-- **Union with God's Energies**: Believers partake in God’s uncreated energies (grace and presence), while His essence remains inaccessible.
-- **Pathways to Theosis**: Prayer, ascetic practices, and sacraments, especially the Eucharist, are vital for achieving *theosis*.
-- **Mysticism and Growth**: Orthodox spirituality emphasizes purification, illumination, and union, leading to deep communion with God.
-**Key Insight**: Orthodox Christianity provides a holistic, sacramental, and mystical framework for *theosis*.
+- **Centrality of Theosis**: In Eastern Orthodox Christianity, *theosis* is foundational. Salvation is viewed as more than mere forgiveness of sins; it is the transformative participation in the divine life, reflecting God’s original purpose for humanity to reflect His image (Genesis 1:26-27). *Theosis* is seen as a cooperative process, where God's grace empowers human participation.
+- **Union with God's Energies**: Believers partake in God’s **uncreated energies**—His grace and presence—while His **essence** remains unknowable and transcendent. This distinction ensures the Creator-creation divide is upheld while allowing intimate union through God’s grace.
+- **Pathways to Theosis**: In Orthodox spirituality, *theosis* is attained through prayer, ascetic practices, and participation in the sacraments, especially the Eucharist. These practices foster union with God and facilitate the process of purification, illumination, and ultimate union (synergy).
+- **Mysticism and Growth**: The Orthodox understanding of *theosis* emphasizes the mystical transformation that occurs as believers progressively become more Christlike, culminating in full communion with God.
+**Key Insight**: Orthodox Christianity offers a holistic, sacramental, and mystical framework for *theosis*, emphasizing the relational nature of salvation.
 
 ### **2. Roman Catholicism**
-- **Sanctification and Beatific Vision**: While *theosis* is not a central term, the concept aligns with Catholic teachings on sanctification and the *beatific vision*—eternal union with God in heaven.
-- **Grace and Nature**: Divine grace elevates human nature, allowing believers to share in God’s life while retaining their humanity.
-- **Sacramental Role**: The Eucharist and baptism are seen as essential channels of grace, fostering transformation into Christlikeness.
-- **Thomas Aquinas’ Contribution**: Aquinas framed *theosis* as humanity’s elevation to the supernatural by divine grace.
-**Key Insight**: Catholic theology integrates *theosis* into its understanding of sanctification, sacraments, and ultimate glorification.
+- **Sanctification and Beatific Vision**: While the term *theosis* is not commonly used in Catholicism, its essence aligns with the Catholic understanding of **sanctification** and the **beatific vision**—the ultimate union with God in heaven, where believers fully participate in His glory. This vision aligns with Catholic teachings on **divinization**, in which believers, by grace, are elevated to share in God’s life, while maintaining their created nature.
+- **Grace and Nature**: Catholic theology teaches that **divine grace** elevates human nature, enabling believers to participate in God’s divine life. This elevation allows them to fulfill their ultimate purpose: to glorify God and reflect His image.
+- **Sacramental Role**: In Catholic theology, the **Eucharist** and **baptism** are central means of grace, through which believers receive the transformative power necessary for sanctification and ultimate glorification.
+- **Thomas Aquinas’ Contribution**: Thomas Aquinas framed *theosis* as the elevation of human nature to the supernatural by God's grace, which is in harmony with the Catholic understanding of salvation. His concept of grace building upon nature provides a framework for understanding how believers can grow into Christlikeness.
+**Key Insight**: Catholic theology integrates *theosis* into its understanding of sanctification, the sacraments, and ultimate glorification, focusing on the participation in divine life that grace makes possible.
 
 ### **3. Protestant Christianity**
-- **Union with Christ**: Protestants emphasize union with Christ as the foundation for justification and sanctification, closely aligning with *theosis*.
-- **Sanctification Over Theosis**: While the term *theosis* is less commonly used, Protestant theology focuses on sanctification as the believer’s transformation into Christlikeness.
-- **Faith and Scripture**: The transformative work of the Holy Spirit is understood as a gift of grace, accessed through faith and rooted in Scripture.
-- **Practical Application**: Practices like personal Bible study, prayer, and community worship are central to spiritual growth.
-**Key Insight**: Protestant traditions focus on *theosis* through the lens of justification by faith and Spirit-empowered sanctification.
+- **Union with Christ**: Protestant theology emphasizes **union with Christ** as the central foundation for both **justification** and **sanctification**. Though the term *theosis* is less frequently used, the core idea of being transformed into Christlikeness aligns closely with the doctrine. The believer’s transformation is made possible through God's grace, received by faith alone (Ephesians 2:8-9).
+- **Sanctification Over Theosis**: In Protestant thought, *sanctification*—the ongoing process of being made holy—is typically emphasized over *theosis*. This process involves the believer being progressively conformed to the image of Christ, though the understanding may not always explicitly use *theosis* terminology. The focus remains on living out the implications of justification and the indwelling of the Holy Spirit.
+- **Faith and Scripture**: Protestantism emphasizes that the transformative work of the Holy Spirit is a gift of grace, accessed through faith, and grounded in Scripture. Through the means of grace—such as **Scripture**, **prayer**, and **fellowship**—believers are sanctified and grow in Christlikeness.
+- **Practical Application**: Protestant practices, such as Bible study, prayer, and communal worship, are central to spiritual growth. These practices align with the broader Christian calling to glorify God and reflect His image in the world.
+**Key Insight**: Protestant traditions focus on *theosis* through the lens of justification by faith and Spirit-empowered sanctification, emphasizing personal transformation through communion with Christ.
 
 ### **Theosis as a Common Calling Across Christian Traditions**
 While *theosis* is understood and articulated differently across various Christian traditions, it remains a shared calling for all believers. In Eastern Orthodox, Roman Catholic, and Protestant thought, the ultimate goal of salvation is communion with God, achieved through divine grace and spiritual transformation. Despite differences in doctrinal frameworks and terminology, all branches recognize the believer’s journey toward Christlikeness and the restoration of God’s image. In this sense, *theosis* transcends denominational boundaries, uniting Christians in their pursuit of holiness, deepening relationship with God, and living out the love of Christ in the world. This common pursuit reflects the essence of Christian discipleship: to glorify God and grow into the fullness of His likeness.
