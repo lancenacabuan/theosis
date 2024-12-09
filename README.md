@@ -143,59 +143,90 @@ In essence, theosis emphasizes salvation as a relationship—one that draws beli
 
 ---
 
-## **IV. Biblical Foundations: Theosis and the Order of Salvation**
-The doctrine of *theosis* is firmly grounded in Scripture, revealing humanity’s original purpose to reflect God’s glory and the transformative journey toward union with Him. Central to this understanding is the **Order of Salvation (Ordo Salutis)**, which outlines the sequence of steps in God’s redemptive work. These steps—election, calling, regeneration, justification, sanctification, and glorification—align closely with the stages of *theosis*: purification, illumination, and union.
+## **IV. The Order of Salvation (Ordo Salutis)**
+The *Order of Salvation* (Ordo Salutis) refers to the sequence of divine actions by which God accomplishes the salvation of His people. It unfolds as a journey of transformation that mirrors the ultimate purpose of humanity—to reflect God’s glory and grow into Christ's likeness. This progression, initiated by God before creation and culminating in eternal union with Him, is not merely a legal transaction but a relational and transformative process. It progressively conforms the believer to the image of Christ and restores humanity’s original purpose, as seen in the concept of *theosis*—the process of becoming one with God’s divine nature, without losing the Creator-creature distinction.
 
-This synergy between the *Order of Salvation* and *theosis* demonstrates how God’s sovereign grace initiates salvation while calling believers to actively participate in their transformation.
+At its core, the *Order of Salvation* reveals both God’s sovereign initiative and the believer’s active response. It takes place within God’s eternal plan for creation—rooted in humanity’s original design in His image, marred by sin, and ultimately restored and perfected in Christ through the sanctifying work of the Holy Spirit.
 
-### **1. Creation and Humanity’s Purpose**
-From the beginning, humanity was created in God’s image to reflect His glory and partake in His divine nature:
-- **Genesis 1:26-27**: Humanity was made in God’s image and likeness to represent His character and glory.
-- **Psalm 8:4-6**: This psalm emphasizes humanity’s high calling, being crowned with glory and honor to steward creation.
-God’s **foreknowledge** (Romans 8:29) and **predestination** affirm that humanity was predestined to be conformed to the image of His Son. These divine acts set the foundation for the transformative journey of *theosis*, where believers are restored to their original purpose.
+### **1. Creation and the Imago Dei**
+The journey of salvation begins with **Creation**, where humanity was made in the **image of God** (**Imago Dei**) to reflect His glory and to live in communion with Him. Humanity was created with a profound purpose: to mirror God’s character and represent His presence in the world. This original intention aligns with the doctrine of *theosis*, where the goal is to progressively partake in God’s divine nature, reflecting His holiness and goodness:
+
+- **Genesis 1:26-27**: Humanity was made in God's image to represent His character and reflect His glory.
+- **Psalm 8:4-6**: Humanity is crowned with glory and honor, called to steward God's creation.
+
+While the **Imago Dei** remains intact in humanity, the Fall marred its expression, leading to a distortion of God’s image in creation. This necessitated a redemptive journey that would eventually culminate in *theosis*, where believers are restored to their original purpose of reflecting God's glory and likeness.
 
 ### **2. The Fall and the Need for Restoration**
-Sin marred the image of God in humanity, making restoration through Christ essential. The fall disrupted humanity’s fellowship with God, resulting in separation and corruption:
-- **Romans 3:23**: All have sinned, falling short of God’s glory.
-- **Romans 8:29-30**: God predestines, calls, justifies, and glorifies those He redeems, restoring the divine likeness in believers.
-- **Colossians 3:10**: Through renewal in Christ, believers regain true knowledge according to their Creator’s image.
-This brokenness necessitated Christ’s redemptive work, which not only forgives sin but also enables believers to grow into His likeness. The *Order of Salvation* serves as a scriptural framework for understanding this restorative process, culminating in *theosis*.
+The **Fall** through sin disrupted the original communion between God and humanity, introducing corruption, spiritual death, and separation from God:
+- **Romans 3:23**: "For all have sinned and fall short of the glory of God."
+- **Isaiah 59:2**: Sin separates humanity from God.
 
-### **3. Participation in Divine Nature**
-Scripture explicitly describes the believer’s invitation to partake in God’s divine nature:
-- **2 Peter 1:4**: *“For by these He has granted to us His precious and magnificent promises, so that by them you may become partakers of the divine nature.”*
+This brokenness establishes the need for restoration—a radical transformation that addresses both the consequence of sin and the failure to live in God’s image. The redemptive work in Christ restores this relationship and enables humanity to begin the process of *theosis*, where believers can again partake in the divine nature through God's grace.
 
-This begins with God’s **calling** and **regeneration** (Titus 3:5), where He draws believers into new life. Regeneration signifies the spiritual renewal of a person’s life, turning them from spiritual death to life in Christ. This is part of the purification process in *theosis*.
+### **3. Foreknowledge and Predestination**
+God’s redemptive plan is rooted in His eternal will. Before the foundation of the world, God **foreknew** and **predestined** those who would be saved, calling them to eternal fellowship with Himself. This calling is not only to salvation but to a transformative process that draws believers into Christ’s image through the work of the Holy Spirit:
+- **Romans 8:29**: "For those whom He foreknew, He also predestined to be conformed to the image of His Son."
+- **Ephesians 1:4-5**: "He chose us in Him before the foundation of the world... in love He predestined us for adoption."
 
-Through **faith** and **repentance**, believers respond to God’s grace. **Faith** is the trust and belief in Christ’s redemptive work (Ephesians 2:8-9), while **repentance** involves a change of mind and heart, turning away from sin and toward God (Acts 26:20). These elements enable the believer to enter the transformative journey of *theosis*.
+God’s **foreknowledge** and **predestination** lay the foundation for salvation, setting the stage for the believer’s journey toward *theosis*, where they are progressively transformed into the image of Christ.
 
-**Justification** marks the declaration of righteousness by God (Romans 5:9), providing the foundation for the believer to begin growing into Christ's likeness. The believer is no longer under condemnation but stands righteous before God, ready to be sanctified.
+### **4. The Calling**
+The **calling** refers to God’s invitation to salvation, which is made manifest through the preaching of the gospel and the internal work of the Holy Spirit. This external and internal calling draws sinners to God, initiating the process of transformation where the believer responds in faith:
+- **Romans 8:30**: "Those whom He predestined, He also called."
+- **2 Timothy 1:9**: "He saved us and called us to a holy calling, not because of our works but because of His own purpose and grace."
 
-### **4. Union with Christ**
-Union with Christ is central to both *theosis* and the *Order of Salvation*. From **justification** to **glorification**, the believer’s transformation is rooted in their relationship with Christ:
-- **Galatians 2:20**: Christ lives in believers, transforming their lives.
-- **Romans 6:5**: Believers share in Christ’s death and resurrection, reflecting His life.
-- **John 15:4-5**: Abiding in Christ enables believers to bear spiritual fruit, apart from which transformation is impossible.
-Through this union, believers are empowered to reflect God’s glory and grow into His likeness, fulfilling their ultimate purpose. **Sanctification** (2 Timothy 2:21) occurs here, as believers are progressively set apart from sin and conformed to Christ.
+The call to salvation is not merely an invitation to believe, but an invitation to be conformed to the likeness of Christ—a key aspect of *theosis*, where believers are invited to partake in God’s divine nature.
 
-### **5. Role of the Holy Spirit**
-The Holy Spirit sanctifies believers, making them temples of God’s presence and agents of His transformative work:
-- **1 Corinthians 6:19**: The believer’s body becomes a temple of the Holy Spirit.
-- **Romans 8:11**: The Spirit who raised Christ empowers believers toward eternal life.
-- **2 Thessalonians 2:13**: Believers are sanctified by the Spirit, growing in truth and holiness.
-The Spirit initiates **regeneration** and continues the work of **sanctification**, guiding believers as they grow in Christlikeness, illuminating their hearts and minds toward greater holiness, mirroring the process of illumination in *theosis*.
+### **5. Regeneration (New Birth)**
+**Regeneration** is the spiritual renewal wrought by the Holy Spirit that enables a person to experience new life in Christ. This new birth signifies the beginning of the transformative journey where the believer is made a new creation and begins to partake in the divine life, progressively reflecting God’s image:
+- **John 3:3**: "Unless one is born again, he cannot see the kingdom of God."
+- **Titus 3:5**: "He saved us... by the washing of regeneration and renewal of the Holy Spirit."
 
-### **6. The Ultimate Goal: Glorification**
-Theosis culminates in the glorification of believers:
-- **1 John 3:2**: When Christ appears, believers will fully reflect His glory.
-- **Philippians 3:21**: God will transform believers’ lowly bodies to conform to Christ’s glorious body.
-- **Revelation 21:3-4**: Perfect communion with God marks the ultimate fulfillment of *theosis*.
-In the *Order of Salvation*, **glorification** represents the final step, where believers are made perfect in body and spirit, enjoying eternal communion with God. This corresponds to the ultimate stage of *theosis*: union with God.
+Regeneration marks the initial step toward *theosis*, where the old nature is set aside, and the believer begins to take on the likeness of Christ.
 
+### **6. Faith and Repentance**
+**Faith** and **repentance** are the necessary responses to God's grace. **Faith** involves trusting in Christ alone for salvation, while **repentance** is the turning away from sin and toward God. These twin responses initiate the believer’s transformative journey, enabling them to partake in the divine nature:
+- **Ephesians 2:8-9**: "For by grace you have been saved through faith."
+- **Acts 26:20**: "Repent... and turn to God, performing deeds in keeping with repentance."
 
-The *Order of Salvation* provides a theological and scriptural framework for understanding the transformative journey of *theosis*. Each step—**foreknowledge**, **predestination**, **election**, **calling**, **regeneration**, **faith**, **repentance**, **justification**, **sanctification**, and **glorification**—aligns with the stages of *theosis*, from **purification** to **illumination** and **union**. This synergy reveals the relational and progressive nature of salvation, where God initiates and sustains the believer’s transformation while calling them to actively cooperate with His grace.
+Faith and repentance are inseparable and lead to justification and sanctification, both essential aspects of *theosis*.
 
-In these Scriptures, *theosis* is revealed as a journey of restoration, renewal, and communion, culminating in the glorification of believers and their eternal union with God.
+### **7. Justification**
+**Justification** is the legal declaration by God that a sinner is righteous, based on the finished work of Christ. It is through faith in Christ, rather than works, that the believer is declared righteous:
+- **Romans 5:1**: "Therefore, since we have been justified by faith, we have peace with God through our Lord Jesus Christ."
+- **Galatians 2:16**: "A person is not justified by works of the law but through faith in Jesus Christ."
+
+Justification restores the believer’s standing before God and lays the foundation for ongoing transformation. Through justification, believers are reconciled to God and enabled to partake in His divine nature, which is the heart of *theosis*.
+
+### **8. Adoption**
+Through **adoption**, believers are brought into God’s family and given the full rights and privileges of sonship. Adoption not only affirms the believer’s new identity in Christ but also secures their place in the family of God, providing the relational foundation for their transformation into Christ’s likeness:
+- **Romans 8:15**: "For you did not receive the spirit of slavery to fall back into fear, but you have received the Spirit of adoption as sons, by whom we cry, 'Abba! Father!'"
+- **Galatians 4:5-7**: Believers are adopted as sons, receiving the Spirit of the Son and becoming heirs with Christ.
+
+This adoption into God’s family is essential to the process of *theosis*, where believers not only partake in God’s grace but also grow in their relationship with Him, reflecting His character.
+
+### **9. Sanctification**
+**Sanctification** is the process of being progressively conformed to the image of Christ. It is a cooperative journey, where the believer’s active participation is enabled by the Holy Spirit:
+- **1 Thessalonians 4:3**: "For this is the will of God, your sanctification."
+- **Romans 6:19**: "Present your members as slaves to righteousness leading to sanctification."
+
+Sanctification is the process through which believers grow in holiness, becoming more Christlike and reflecting God's glory. It is an essential part of *theosis*, where believers are transformed into Christ’s likeness through the Spirit’s work.
+
+### **10. Perseverance of the Saints**
+The **perseverance of the saints** speaks to the believer’s ongoing faith and holiness, sustained by God's grace until the end. It assures believers that those whom God has called will be kept by His power:
+- **Matthew 24:13**: "But the one who endures to the end will be saved."
+- **Philippians 1:6**: "He who began a good work in you will bring it to completion at the day of Jesus Christ."
+
+This perseverance is an essential part of the process of *theosis*, as believers continue in their journey toward full transformation into Christ’s image.
+
+### **11. Glorification**
+**Glorification** is the final stage of salvation, where believers are fully conformed to the image of Christ and are made perfect in body and soul. It is the fulfillment of the believer’s transformation, where they fully partake in God’s glory and enter eternal communion with Him:
+- **Romans 8:30**: "And those whom He predestined, He also called; and those whom He called, He also justified; and those whom He justified, He also glorified."
+- **1 John 3:2**: "When He appears, we shall be like Him, because we shall see Him as He is."
+
+Glorification is the ultimate fulfillment of *theosis*, where believers are fully united with God, reflecting His glory for eternity.
+
+The *Order of Salvation* is the divine blueprint through which God transforms believers from spiritual death to eternal life. Each stage reveals God’s grace and the believer’s journey toward full restoration in Christ’s likeness. From creation to glorification, God’s plan is to restore His image in humanity. Through the work of Christ and the transforming power of the Holy Spirit, believers partake in God's divine nature, progressing through sanctification and ultimately reaching the fullness of *theosis*—eternal union with God. This journey brings believers into deeper communion with God and prepares them for the eternal glory that awaits them.
 
 ---
 
