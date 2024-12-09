@@ -312,7 +312,7 @@ The doctrine of *theosis* is not confined to one Christian tradition; its princi
 ### **1. Eastern Orthodox Christianity**
 - **Centrality of Theosis**: In Eastern Orthodox Christianity, *theosis* is foundational. Salvation is viewed as more than mere forgiveness of sins; it is the transformative participation in the divine life, reflecting God’s original purpose for humanity to reflect His image (Genesis 1:26-27). *Theosis* is seen as a cooperative process, where God's grace empowers human participation.
 - **Union with God's Energies**: Believers partake in God’s **uncreated energies**—His grace and presence—while His **essence** remains unknowable and transcendent. This distinction ensures the Creator-creation divide is upheld while allowing intimate union through God’s grace.
-- **Pathways to Theosis**: In Orthodox spirituality, *theosis* is attained through prayer, ascetic practices, and participation in the sacraments, especially the Eucharist. These practices foster union with God and facilitate the process of purification, illumination, and ultimate union (synergy).
+- **Pathways to Theosis**: In Orthodox spirituality, *theosis* is attained through prayer, ascetic practices, and participation in the sacraments, especially the Eucharist. In synergy, these practices foster union with God and facilitate the process of purification, illumination, and ultimate union.
 - **Mysticism and Growth**: The Orthodox understanding of *theosis* emphasizes the mystical transformation that occurs as believers progressively become more Christlike, culminating in full communion with God.
 
 **Key Insight**: Orthodox Christianity offers a holistic, sacramental, and mystical framework for *theosis*, emphasizing the relational nature of salvation.
