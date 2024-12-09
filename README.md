@@ -263,38 +263,46 @@ The early Church Fathers played a pivotal role in shaping the doctrine of *theos
 ### **1. St. Athanasius (296–373 AD)**
 - Known for his famous statement: *“God became man so that man might become god.”*
 - In his seminal work, *On the Incarnation*, Athanasius emphasized that Christ’s incarnation united divinity and humanity, opening the way for believers to participate in divine life.
-- **Key Insight**: Christ’s redemptive work restores humanity’s original purpose to reflect God’s image.
+
+**Key Insight**: Christ’s redemptive work restores humanity’s original purpose to reflect God’s image.
 
 ### **2. St. Irenaeus of Lyons (130–202 AD)**
 - Advocated for the restoration of humanity’s divine image through Christ’s obedience and sacrifice.
 - Declared: *“The glory of God is man fully alive, and the life of man is the vision of God.”*
-- **Key Insight**: Theosis is humanity’s fulfillment in relationship with God, reflecting His glory.
+
+**Key Insight**: Theosis is humanity’s fulfillment in relationship with God, reflecting His glory.
 
 ### **3. St. Gregory of Nyssa (335–395 AD)**
 - Introduced the concept of an endless journey toward God, stating: *“This is true perfection: never to stop growing toward what is better.”*
-- **Key Insight**: Theosis is a lifelong process of transformation, marked by continuous growth in holiness.
+
+**Key Insight**: Theosis is a lifelong process of transformation, marked by continuous growth in holiness.
 
 ### **4. St. Maximus the Confessor (580–662 AD)**
 - Articulated the synergy of divine grace and human free will, emphasizing that believers participate in God’s **energies** rather than His **essence**.
-- **Key Insight**: Theosis respects the distinction between Creator and creature while inviting humanity to partake in God’s grace.
+
+**Key Insight**: Theosis respects the distinction between Creator and creature while inviting humanity to partake in God’s grace.
 
 ### **5. St. Gregory Palamas (1296–1359 AD)**
 - Defended the distinction between God’s essence (inaccessible) and energies (accessible) during the Hesychast controversy.
-- **Key Insight**: Believers experience *theosis* through participation in God’s uncreated energies, preserving His transcendence while allowing relational intimacy.
+
+**Key Insight**: Believers experience *theosis* through participation in God’s uncreated energies, preserving His transcendence while allowing relational intimacy.
 
 ### **6. St. John Chrysostom (347–407 AD)**
 - Highlighted the sacramental and communal nature of *theosis*, especially through the Eucharist.
 - Stated: *“When you see [the Eucharist], you say to yourself: ‘By His flesh I am united to Him.’”*
-- **Key Insight**: Theosis thrives in the Church, where the sacraments serve as tangible expressions of union with Christ.
+
+**Key Insight**: Theosis thrives in the Church, where the sacraments serve as tangible expressions of union with Christ.
 
 ### **7. Pseudo-Dionysius the Areopagite (5th–6th century)**
 - Developed a mystical theology of ascent, where *theosis* occurs through stages of purification, illumination, and union.
-- **Key Insight**: Theosis is a dynamic journey that draws believers closer to God through spiritual growth.
+
+**Key Insight**: Theosis is a dynamic journey that draws believers closer to God through spiritual growth.
 
 ### **8. St. Symeon the New Theologian (949–1022 AD)**
 - Emphasized personal experience of God’s divine light and transformation through the Holy Spirit.
 - Taught that *theosis* begins in this life through repentance and divine illumination.
-- **Key Insight**: Believers can experience the transformative power of *theosis* here and now.
+
+**Key Insight**: Believers can experience the transformative power of *theosis* here and now.
 
 ---
 
@@ -306,6 +314,7 @@ The doctrine of *theosis* is not confined to one Christian tradition; its princi
 - **Union with God's Energies**: Believers partake in God’s **uncreated energies**—His grace and presence—while His **essence** remains unknowable and transcendent. This distinction ensures the Creator-creation divide is upheld while allowing intimate union through God’s grace.
 - **Pathways to Theosis**: In Orthodox spirituality, *theosis* is attained through prayer, ascetic practices, and participation in the sacraments, especially the Eucharist. These practices foster union with God and facilitate the process of purification, illumination, and ultimate union (synergy).
 - **Mysticism and Growth**: The Orthodox understanding of *theosis* emphasizes the mystical transformation that occurs as believers progressively become more Christlike, culminating in full communion with God.
+
 **Key Insight**: Orthodox Christianity offers a holistic, sacramental, and mystical framework for *theosis*, emphasizing the relational nature of salvation.
 
 ### **2. Roman Catholicism**
@@ -313,6 +322,7 @@ The doctrine of *theosis* is not confined to one Christian tradition; its princi
 - **Grace and Nature**: Catholic theology teaches that **divine grace** elevates human nature, enabling believers to participate in God’s divine life. This elevation allows them to fulfill their ultimate purpose: to glorify God and reflect His image.
 - **Sacramental Role**: In Catholic theology, the **Eucharist** and **baptism** are central means of grace, through which believers receive the transformative power necessary for sanctification and ultimate glorification.
 - **Thomas Aquinas’ Contribution**: Thomas Aquinas framed *theosis* as the elevation of human nature to the supernatural by God's grace, which is in harmony with the Catholic understanding of salvation. His concept of grace building upon nature provides a framework for understanding how believers can grow into Christlikeness.
+
 **Key Insight**: Catholic theology integrates *theosis* into its understanding of sanctification, the sacraments, and ultimate glorification, focusing on the participation in divine life that grace makes possible.
 
 ### **3. Protestant Christianity**
@@ -320,6 +330,7 @@ The doctrine of *theosis* is not confined to one Christian tradition; its princi
 - **Sanctification Over Theosis**: In Protestant thought, *sanctification*—the ongoing process of being made holy—is typically emphasized over *theosis*. This process involves the believer being progressively conformed to the image of Christ, though the understanding may not always explicitly use *theosis* terminology. The focus remains on living out the implications of justification and the indwelling of the Holy Spirit.
 - **Faith and Scripture**: Protestantism emphasizes that the transformative work of the Holy Spirit is a gift of grace, accessed through faith, and grounded in Scripture. Through the means of grace—such as **Scripture**, **prayer**, and **fellowship**—believers are sanctified and grow in Christlikeness.
 - **Practical Application**: Protestant practices, such as Bible study, prayer, and communal worship, are central to spiritual growth. These practices align with the broader Christian calling to glorify God and reflect His image in the world.
+
 **Key Insight**: Protestant traditions focus on *theosis* through the lens of justification by faith and Spirit-empowered sanctification, emphasizing personal transformation through communion with Christ.
 
 ### **Theosis as a Common Calling Across Christian Traditions**
