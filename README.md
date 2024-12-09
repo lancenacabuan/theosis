@@ -1,7 +1,4 @@
 # The Thesis of Theosis: Our Holy Calling to Reflect God’s Glory and Grow into Christ's Likeness through Communion with Him
-
----
-
 ## *Introduction*
 The Christian life is a transformative journey, one that calls believers to reflect God’s glory and grow into Christ’s likeness through communion with Him. Central to this journey is the concept of *theosis*, derived from the Greek *θέωσις*, meaning “divinization” or “deification.” Rooted in Scripture and the teachings of the early Church, *theosis* describes the process by which believers partake in the divine nature, as articulated in 2 Peter 1:4: *“...that you may become partakers of the divine nature.”* Through the grace-enabled work of the Holy Spirit, Christians are invited to reflect God’s holiness, participate in His life, and fulfill their original purpose—to mirror His image.
 
@@ -163,28 +160,28 @@ The **Fall** through sin disrupted the original communion between God and humani
 
 This brokenness establishes the need for restoration—a radical transformation that addresses both the consequence of sin and the failure to live in God’s image. The redemptive work in Christ restores this relationship and enables humanity to begin the process of *theosis*, where believers can again partake in the divine nature through God's grace.
 
-### **3. Foreknowledge and Predestination**
+### **3. Election: Foreknowledge and Predestination**
 God’s redemptive plan is rooted in His eternal will. Before the foundation of the world, God **foreknew** and **predestined** those who would be saved, calling them to eternal fellowship with Himself. This calling is not only to salvation but to a transformative process that draws believers into Christ’s image through the work of the Holy Spirit:
 - **Romans 8:29**: "For those whom He foreknew, He also predestined to be conformed to the image of His Son."
 - **Ephesians 1:4-5**: "He chose us in Him before the foundation of the world... in love He predestined us for adoption."
 
 God’s **foreknowledge** and **predestination** lay the foundation for salvation, setting the stage for the believer’s journey toward *theosis*, where they are progressively transformed into the image of Christ.
 
-### **4. The Calling**
+### **4. Effectual Calling**
 The **calling** refers to God’s invitation to salvation, which is made manifest through the preaching of the gospel and the internal work of the Holy Spirit. This external and internal calling draws sinners to God, initiating the process of transformation where the believer responds in faith:
 - **Romans 8:30**: "Those whom He predestined, He also called."
 - **2 Timothy 1:9**: "He saved us and called us to a holy calling, not because of our works but because of His own purpose and grace."
 
 The call to salvation is not merely an invitation to believe, but an invitation to be conformed to the likeness of Christ—a key aspect of *theosis*, where believers are invited to partake in God’s divine nature.
 
-### **5. Regeneration (New Birth)**
+### **5. Regeneration: New Birth**
 **Regeneration** is the spiritual renewal wrought by the Holy Spirit that enables a person to experience new life in Christ. This new birth signifies the beginning of the transformative journey where the believer is made a new creation and begins to partake in the divine life, progressively reflecting God’s image:
 - **John 3:3**: "Unless one is born again, he cannot see the kingdom of God."
 - **Titus 3:5**: "He saved us... by the washing of regeneration and renewal of the Holy Spirit."
 
 Regeneration marks the initial step toward *theosis*, where the old nature is set aside, and the believer begins to take on the likeness of Christ.
 
-### **6. Faith and Repentance**
+### **6. Conversion: Faith and Repentance**
 **Faith** and **repentance** are the necessary responses to God's grace. **Faith** involves trusting in Christ alone for salvation, while **repentance** is the turning away from sin and toward God. These twin responses initiate the believer’s transformative journey, enabling them to partake in the divine nature:
 - **Ephesians 2:8-9**: "For by grace you have been saved through faith."
 - **Acts 26:20**: "Repent... and turn to God, performing deeds in keeping with repentance."
