@@ -255,53 +255,52 @@ By uniting believers with the Father and the Son, the Holy Spirit ensures their 
 ---
 
 ## **VI. Contributions of the Church Fathers**
-The early Church Fathers played a pivotal role in shaping the doctrine of *theosis*, offering profound insights that continue to guide Christian theology and practice. This section highlights their contributions, providing historical context and simplifying complex ideas for greater accessibility.
+The early Church Fathers played a pivotal role in shaping the doctrine of *theosis*, offering profound theological insights that continue to influence Christian theology and practice today. This section highlights their contributions, providing historical context while simplifying complex theological concepts for greater accessibility.
 
 ### **1. St. Athanasius (296–373 AD)**
 - Known for his famous statement: *“God became man so that man might become god.”*
-- In his seminal work, *On the Incarnation*, Athanasius emphasized that Christ’s incarnation united divinity and humanity, opening the way for believers to participate in divine life.
+- In his seminal work *On the Incarnation*, Athanasius emphasized that through the incarnation, Christ united divinity with humanity, thus opening the way for believers to participate in divine life.
 
-**Key Insight**: Christ’s redemptive work restores humanity’s original purpose to reflect God’s image.
+**Key Insight**: Christ’s redemptive work restores humanity’s original purpose of reflecting God’s image, fulfilling the divine design for creation.
 
 ### **2. St. Irenaeus of Lyons (130–202 AD)**
 - Advocated for the restoration of humanity’s divine image through Christ’s obedience and sacrifice.
-- Declared: *“The glory of God is man fully alive, and the life of man is the vision of God.”*
+- He famously declared: *“The glory of God is man fully alive, and the life of man is the vision of God.”*
 
-**Key Insight**: Theosis is humanity’s fulfillment in relationship with God, reflecting His glory.
+**Key Insight**: *Theosis* is humanity’s ultimate fulfillment, found in a restored relationship with God, reflecting His glory and living in communion with Him.
 
 ### **3. St. Gregory of Nyssa (335–395 AD)**
-- Introduced the concept of an endless journey toward God, stating: *“This is true perfection: never to stop growing toward what is better.”*
+- St. Gregory introduced the concept of an ongoing journey toward God, stating: *“This is true perfection: never to stop growing toward what is better.”*
 
-**Key Insight**: Theosis is a lifelong process of transformation, marked by continuous growth in holiness.
+**Key Insight**: *Theosis* is a lifelong process of transformation, marked by continuous spiritual growth and increasing Christlikeness.
 
 ### **4. St. Maximus the Confessor (580–662 AD)**
-- Articulated the synergy of divine grace and human free will, emphasizing that believers participate in God’s **energies** rather than His **essence**.
+- Articulated the synergy between divine grace and human free will, emphasizing that believers participate in God’s **energies** rather than His **essence**.
 
-**Key Insight**: Theosis respects the distinction between Creator and creature while inviting humanity to partake in God’s grace.
+**Key Insight**: *Theosis* respects the distinction between Creator and creature, inviting humanity to partake in God’s grace and divine presence while maintaining the Creator-creature divide.
 
 ### **5. St. Gregory Palamas (1296–1359 AD)**
-- Defended the distinction between God’s essence (inaccessible) and energies (accessible) during the Hesychast controversy.
+- Defended the distinction between God’s essence (which remains inaccessible) and His energies (which are accessible) during the Hesychast controversy.
 
-**Key Insight**: Believers experience *theosis* through participation in God’s uncreated energies, preserving His transcendence while allowing relational intimacy.
+**Key Insight**: Believers experience *theosis* through participation in God’s uncreated energies, preserving His transcendence while fostering a relational intimacy with Him.
 
 ### **6. St. John Chrysostom (347–407 AD)**
-- Highlighted the sacramental and communal nature of *theosis*, especially through the Eucharist.
-- Stated: *“When you see [the Eucharist], you say to yourself: ‘By His flesh I am united to Him.’”*
+- Emphasized the sacramental and communal nature of *theosis*, particularly through the Eucharist. He stated: *“When you see [the Eucharist], you say to yourself: ‘By His flesh I am united to Him.’”*
 
-**Key Insight**: Theosis thrives in the Church, where the sacraments serve as tangible expressions of union with Christ.
+**Key Insight**: *Theosis* is nourished and realized in the Church, where the sacraments, particularly the Eucharist, serve as tangible expressions of union with Christ and a means of transformation.
 
 ### **7. Pseudo-Dionysius the Areopagite (5th–6th century)**
-- Developed a mystical theology of ascent, where *theosis* occurs through stages of purification, illumination, and union.
+- Developed a mystical theology of ascent, in which *theosis* occurs through stages of purification, illumination, and union with God.
 
-**Key Insight**: Theosis is a dynamic journey that draws believers closer to God through spiritual growth.
+**Key Insight**: *Theosis* is a dynamic and progressive journey, drawing believers closer to God as they grow spiritually and ascend toward divine union.
 
 ### **8. St. Symeon the New Theologian (949–1022 AD)**
-- Emphasized personal experience of God’s divine light and transformation through the Holy Spirit.
-- Taught that *theosis* begins in this life through repentance and divine illumination.
+- Stressed the personal experience of God’s divine light and transformation through the Holy Spirit.
+- He taught that *theosis* begins in this life through repentance and divine illumination.
 
-**Key Insight**: Believers can experience the transformative power of *theosis* here and now.
+**Key Insight**: Believers can experience the transformative power of *theosis* in the present life, through repentance and spiritual enlightenment that bring them into closer communion with God.
 
-The Church Fathers shaped *theosis* as the journey of reflecting God’s image and growing into Christ’s likeness. They emphasized the Incarnation’s restorative role (Athanasius, Irenaeus), the lifelong transformation into holiness (Gregory of Nyssa, Maximus), the balance between God’s transcendence and relational intimacy (Palamas, Pseudo-Dionysius), and the sacramental and experiential aspects of divine communion (Chrysostom, Symeon). Their teachings present *theosis* as a grace-filled, practical call to holiness, inviting believers into deeper union with God through faith and spiritual growth.
+The Church Fathers were instrumental in developing *theosis* as the transformative journey of reflecting God’s image and growing into Christ’s likeness. Their teachings underscored the Incarnation’s restorative role (Athanasius, Irenaeus), the lifelong transformation into holiness (Gregory of Nyssa, Maximus), the balance between God’s transcendence and relational intimacy (Palamas, Pseudo-Dionysius), and the sacramental and experiential dimensions of divine communion (Chrysostom, Symeon). Collectively, their insights present *theosis* as a grace-filled, practical call to holiness, inviting believers into deeper union with God through faith, spiritual growth, and the transformative work of the Holy Spirit.
 
 ---
 
