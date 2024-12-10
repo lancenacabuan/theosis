@@ -472,7 +472,7 @@ Heavenly Father,
 
 You have created us in Your image and called us to reflect Your glory. Through Your abundant grace, You have invited us to partake in Your divine nature, drawing us into a life of communion with You. We humbly thank You for the gift of transformation, made possible through the life, death, and resurrection of Your Son, Jesus Christ.
 
-Lord, purify our hearts and cleanse us from sin so we may walk in holiness. Illuminate our minds with Your truth, that we may grow in wisdom and understanding. Strengthen us to abide in Christ, the true vine, so we may bear fruit that glorifies Your name.
+Lord, purify our hearts and cleanse us from sin so we may walk in holiness. Illuminate our minds with Your truth, that we may grow in wisdom and understanding. Strengthen us to abide in Christ, the True Vine, so we may bear fruit that glorifies Your name.
 
 Holy Spirit, empower us to cooperate with Your work in our lives. Teach us to live by faith, prayer, and obedience as we journey toward Christlikeness. Help us to reflect the character of our Savior in our thoughts, words, and actions, that we may shine as beacons of Your love and grace in a broken world.
 
