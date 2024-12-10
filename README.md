@@ -64,59 +64,59 @@ These truths invite believers to live in gratitude and faith, continually respon
 ---
 
 ## **II. The Stages of Theosis**
-Theosis is a transformative journey that unfolds in three interrelated stages: **purification**, **illumination**, and **union**. These stages, though distinct, overlap and interact as believers grow in their relationship with God, moving closer to His likeness. Each stage reflects a deeper participation in the divine life, marked by the synergy of God’s grace and human response—always rooted in His empowering grace.
+Theosis is a transformative journey that unfolds in three interrelated stages: **purification**, **illumination**, and **union**. While these stages are distinct, they overlap and interact as believers grow in their relationship with God, progressively becoming more conformed to His likeness. Each stage represents a deeper participation in the divine life, characterized by the synergy of God’s grace and human response, always rooted in His empowering grace.
 
 ### **1. Purification (Katharsis): Cleansing from Sin**
 **Definition**:
-Purification is the foundational stage of *theosis*, where believers turn from sin and are reconciled to God through repentance and justification. It begins with recognizing the need for God’s grace and submitting to His transformative power.
+Purification is the foundational stage of *theosis*, where believers turn from sin and are reconciled to God through repentance and justification. This stage begins with recognizing the need for God’s grace and submitting to His transformative power, which cleanses the believer from the stain of sin and prepares them for deeper communion with God.
 
 **Scriptural Basis**:
-- *“Though your sins are like scarlet, they shall be as white as snow.”* (Isaiah 1:18)
-- *“If we confess our sins, He is faithful and just to forgive us our sins and to cleanse us from all unrighteousness.”* (1 John 1:9)
+- *“Though your sins are like scarlet, they shall be as white as snow.”* (*Isaiah 1:18*)
+- *“If we confess our sins, He is faithful and just to forgive us our sins and to cleanse us from all unrighteousness.”* (*1 John 1:9*)
 
 **Practical Application**:
-- Regular repentance: Confess sins daily and seek God’s forgiveness, relying on His grace to cleanse and renew.
-- Spiritual disciplines: Engage in fasting and prayer, cooperating with God's grace to align your heart with His will.
-- Reflect on Scripture, such as Psalm 51:10: *“Create in me a clean heart, O God.”*
-- Example: A believer struggling with pride might practice humility through acts of service, allowing God to purify their heart by His grace.
+- **Regular Repentance**: Engage in daily confession and seek God’s forgiveness, relying on His grace to cleanse and renew.
+- **Spiritual Disciplines**: Participate in fasting and prayer, cooperating with God’s grace to align your heart and actions with His will.
+- **Scripture Reflection**: Meditate on passages like *Psalm 51:10*—*“Create in me a clean heart, O God.”*
+- **Example**: A believer struggling with pride might practice humility by serving others, allowing God to purify their heart by His grace.
 
-Through purification, believers are cleansed of sin and prepared for deeper communion with God, setting the stage for spiritual growth.
+Purification prepares believers for deeper communion with God by cleansing them from sin, laying the foundation for spiritual growth and transformation.
 
 ### **2. Illumination (Photisis): Transformation into Christlikeness**
 **Definition**:
-Illumination is the ongoing process of sanctification, where believers grow in holiness and understanding of God’s truth. It involves the renewal of the mind, heart, and will through the work of the Holy Spirit, who empowers and guides the believer's transformation.
+Illumination represents the ongoing process of sanctification, in which believers grow in holiness and understanding of God’s truth. It involves the renewal of the mind, heart, and will through the work of the Holy Spirit, who empowers the believer’s transformation into the image of Christ.
 
 **Scriptural Basis**:
-- *“We all, with unveiled face, beholding as in a mirror the glory of the Lord, are being transformed into the same image from glory to glory.”* (2 Corinthians 3:18)
-- *“Your word is a lamp to my feet and a light to my path.”* (Psalm 119:105)
+- *“We all, with unveiled face, beholding as in a mirror the glory of the Lord, are being transformed into the same image from glory to glory.”* (*2 Corinthians 3:18*)
+- *“Your word is a lamp to my feet and a light to my path.”* (*Psalm 119:105*)
 
 **Practical Application**:
-- Live by the Spirit: Cultivate the fruits of the Spirit (Galatians 5:22-23) and rely on His guidance, knowing that transformation comes through His grace.
-- Deepen understanding: Study Scripture and Christian teachings to know God more intimately, while relying on the Holy Spirit to illuminate your heart.
-- Participate in sacraments: Regularly partake in the Eucharist, where God’s grace strengthens and sustains you in the process of illumination.
-- Example: A believer experiencing anger might meditate on Christ’s example of patience, praying for the Holy Spirit to empower them for transformation.
+- **Living by the Spirit**: Cultivate the fruits of the Spirit (*Galatians 5:22-23*) and rely on His guidance to transform your character and actions.
+- **Deepening Understanding**: Study Scripture and Christian teachings to know God more intimately, trusting the Holy Spirit to illuminate your heart and mind.
+- **Sacramental Participation**: Regularly partake in the Eucharist, where God’s grace strengthens and sustains you in the process of illumination.
+- **Example**: A believer struggling with anger might meditate on Christ’s patience and pray for the Holy Spirit’s help in developing a Christlike response.
 
-Illumination helps believers reflect Christ’s character and grow in love, wisdom, and faith, through the grace of the Holy Spirit.
+Illumination enables believers to reflect Christ’s character and grow in love, wisdom, and faith, empowered by the grace of the Holy Spirit.
 
 ### **3. Union (Theosis): Perfect Communion with God**
 **Definition**:
-Union represents the culmination of *theosis*, where believers experience complete communion with God. This stage corresponds to glorification, where both body and soul are perfected in Christ’s likeness, an ultimate transformation brought about entirely by God's grace.
+Union represents the culmination of *theosis*, where believers experience perfect communion with God. This stage corresponds to glorification, wherein both body and soul are perfected in Christ’s likeness, a transformation brought about entirely by God's grace.
 
 **Scriptural Basis**:
-- *“He will transform the body of our humble state into conformity with the body of His glory.”* (Philippians 3:21)
-- *“We shall be like Him, for we shall see Him as He is.”* (1 John 3:2)
+- *“He will transform the body of our humble state into conformity with the body of His glory.”* (*Philippians 3:21*)
+- *“We shall be like Him, for we shall see Him as He is.”* (*1 John 3:2*)
 
 **Practical Application**:
-- Hope in glorification: Live with the assurance that God will complete the work He has begun (Philippians 1:6), trusting in His sustaining grace.
-- Anticipate eternity: Let the promise of union with God inspire perseverance in trials, knowing that your ultimate transformation is assured by God’s grace.
-- Example: A believer facing suffering might find strength in the hope of their ultimate transformation and eternal communion with God, through God's unmerited grace.
+- **Hope in Glorification**: Live with the assurance that God will complete the work He has begun (*Philippians 1:6*), trusting in His sustaining grace.
+- **Anticipating Eternity**: Let the promise of ultimate union with God inspire perseverance in trials, knowing that your transformation is assured by God’s grace.
+- **Example**: A believer facing suffering may find strength in the hope of ultimate transformation and eternal communion with God, sustained by His unmerited grace.
 
-Union with God is both the goal and fulfillment of *theosis*, where believers partake fully in His divine life, reflecting His glory for eternity.
+Union with God is both the ultimate goal and fulfillment of *theosis*, where believers fully partake in His divine life, reflecting His glory for eternity.
 
 ### **Interconnection of the Stages**
-These stages are not strictly linear but interwoven throughout the Christian life. Purification lays the foundation for illumination, while illumination deepens one’s communion with God, pointing toward the ultimate union. As believers progress, they continually return to purification and illumination, growing closer to God in every aspect of their being.
+These stages are not strictly linear but interwoven throughout the Christian life. Purification provides the foundation for illumination, while illumination deepens one’s communion with God and leads toward ultimate union. As believers progress, they continually return to purification and illumination, growing closer to God in every aspect of their being.
 
-The journey of *theosis* calls believers to embrace this process with faith and commitment, trusting in God’s grace to transform them into His image from glory to glory, all the while relying on His power and guidance.
+The journey of *theosis* calls believers to embrace this transformative process with faith and commitment, trusting in God’s grace to shape them into His image from glory to glory, relying on His power and guidance every step of the way.
 
 ---
 
