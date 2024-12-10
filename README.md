@@ -1,4 +1,4 @@
-# The Thesis of Theosis: The Holy Calling to Reflect God’s Glory and Grow into Christ's Likeness through Communion with Him
+# Theosis: The Transformative Journey of Communion with God to Reflect His Glory and Become Like Christ
 ## *Abstract*
 This thesis explores the doctrine of *theosis*, a transformative theological concept rooted in Scripture and the teachings of the early Church. It investigates how *theosis*, understood as the process by which believers partake in God’s divine nature, provides a comprehensive framework for Christian discipleship. Drawing on biblical exegesis, patristic insights, and systematic theology, the study examines the historical and theological foundations of *theosis* while addressing its implications for contemporary Christian living. Through a synthesis of biblical analysis and theological reflection, this work argues that *theosis* offers a robust model for personal spiritual growth, communal faith practices, and engagement with societal challenges. The thesis concludes that embracing the doctrine of *theosis* can inspire believers to reflect God’s glory and grow into Christ’s likeness, fulfilling their holy calling both individually and collectively.
 
@@ -13,11 +13,11 @@ By integrating biblical exegesis, patristic theology, and practical application,
 
 ## **I. Definition, Clarification, and Implication**
 ### **Theological Definition of Theosis**
-*Theosis*, derived from the Greek term *θέωσις* (meaning "divinization" or "deification"), refers to the transformative process in which human beings, created in the image of God, are restored to their intended purpose through union with Christ. This process, enabled by divine grace, allows believers to partake in God’s life and goodness while maintaining their distinct identity as His creation.
+*Theosis*, derived from the Greek term *θέωσις* (meaning "divinization" or "deification"), refers to the transformative journey of communion with God, through which believers reflect His glory and become like Christ. This process, enabled by divine grace, restores human beings, created in God’s image, to their intended purpose through union with Christ. As believers partake in God’s life and goodness, they maintain their distinct identity as His creation.
 
-As St. Athanasius famously articulated, *“God became man so that man might become god.”* This statement does not imply that humans achieve equality with God in essence but rather emphasizes their transformation into Christlikeness, reflecting His holiness, love, and righteousness. This journey is wholly initiated and sustained by divine grace, requiring the believer’s active, yet dependent, cooperation.
+As St. Athanasius famously articulated, *“God became man so that man might become god.”* This statement does not imply that humans achieve equality with God in essence but emphasizes their transformation into Christlikeness—reflecting His holiness, love, and righteousness. This journey is wholly initiated and sustained by divine grace, requiring the believer’s active yet dependent cooperation.
 
-At its core, *theosis* encapsulates the transformative journey of communion with God, in which believers are progressively conformed to the likeness of Christ. It highlights humanity's ultimate calling to glorify God by living in His grace, a process that restores the imago Dei (image of God) and fulfills the divine purpose for creation.
+At its core, *theosis* is the transformative journey of communion with God, progressively conforming believers to the likeness of Christ. It underscores humanity's ultimate calling to glorify God by living in His grace, a process that restores the imago Dei (image of God) and fulfills the divine purpose for creation.
 
 ### **Clarifying the Creator-Creation Distinction**
 A foundational aspect of *theosis* is the clear distinction between Creator and creation. While believers are invited to participate in God’s divine life, they do not become God in essence or nature. Instead, they partake in God’s **energies**—His active presence, grace, and life-giving power—while His essence remains transcendent, unknowable, and utterly distinct.
