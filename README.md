@@ -1,4 +1,4 @@
-# The Thesis of Theosis: Our Holy Calling to Reflect God’s Glory and Grow into Christ's Likeness through Communion with Him
+# The Thesis of Theosis: The Holy Calling to Reflect God’s Glory and Grow into Christ's Likeness through Communion with Him
 ## *Abstract*
 This thesis explores the doctrine of *theosis*, a transformative theological concept rooted in Scripture and the teachings of the early Church. It investigates how *theosis*, understood as the process by which believers partake in God’s divine nature, provides a comprehensive framework for Christian discipleship. Drawing on biblical exegesis, patristic insights, and systematic theology, the study examines the historical and theological foundations of *theosis* while addressing its implications for contemporary Christian living. Through a synthesis of biblical analysis and theological reflection, this work argues that *theosis* offers a robust model for personal spiritual growth, communal faith practices, and engagement with societal challenges. The thesis concludes that embracing the doctrine of *theosis* can inspire believers to reflect God’s glory and grow into Christ’s likeness, fulfilling their holy calling both individually and collectively.
 
@@ -306,7 +306,7 @@ The Church Fathers shaped *theosis* as the journey of reflecting God’s image a
 ---
 
 ## **VII. Ecumenical Perspectives**
-The doctrine of *theosis* transcends denominational boundaries, resonating across various Christian traditions and offering diverse interpretations that deepen our understanding of salvation and spiritual growth. This section explores how *theosis* is viewed in Eastern Orthodox Christianity, Roman Catholicism, and Protestantism, highlighting both commonalities and differences in how the concept is understood and applied within these traditions.
+The doctrine of *theosis* transcends denominational boundaries, resonating across various Christian traditions and offering diverse interpretations that deepen the understanding of salvation and spiritual growth. This section explores how *theosis* is viewed in Eastern Orthodox Christianity, Roman Catholicism, and Protestantism, highlighting both commonalities and differences in how the concept is understood and applied within these traditions.
 
 ### **1. Eastern Orthodox Christianity**
 - **Centrality of Theosis**: In Eastern Orthodox Christianity, *theosis* is foundational to the doctrine of salvation. It is viewed not merely as the forgiveness of sins but as a transformative participation in the divine life, aligning with God’s original purpose for humanity to reflect His image (*Genesis 1:26-27*). *Theosis* is understood as a cooperative process, wherein God's grace empowers human participation.
@@ -343,12 +343,12 @@ In this sense, *theosis* transcends denominational lines, uniting Christians in 
 ### *Glorify God. Emulate Christ.*
 The Christian calling transcends mere moral improvement or personal success; it is a divine invitation to reflect God’s glory and grow into the likeness of Christ. This transformative process, known as *theosis*, encapsulates the ultimate purpose of human life in Christ. While this calling may appear lofty, it is neither unattainable nor self-derived. Instead, it is rooted in God’s design for humanity, sustained by His grace, and empowered by the Holy Spirit.
 
-### **1. Glorify God: Reflecting His Glory in All We Do**
-The first dimension of the Christian calling is to glorify God in every aspect of life. This involves mirroring His holiness, greatness, and love through our thoughts, actions, and relationships. As bearers of the imago Dei (image of God), believers are called to reflect His divine attributes and reveal His presence in the world.
+### **1. Glorify God**
+The first dimension of the Christian calling is to glorify God in every aspect of life. This involves reflecting His holiness, greatness, and love through thoughts, actions, and relationships. As bearers of the imago Dei (image of God), believers are called to reflect His divine attributes and reveal His presence in the world.
 
 The Apostle Paul describes this transformative journey in **2 Corinthians 3:18**: *“We all, with unveiled face, beholding as in a mirror the glory of the Lord, are being transformed into the same image from glory to glory.”* This transformation occurs not by human effort but through the power of the Holy Spirit as believers live in communion with Christ. By engaging in practices such as prayer, Scripture study, and worship, Christians progressively grow in their ability to reflect God’s glory, participating in His divine life and holiness.
 
-### **2. Emulate Christ: Growing into His Likeness**
+### **2. Emulate Christ**
 The second dimension of *theosis* is the call to emulate Christ, which involves not merely imitating His actions but allowing His character to transform every aspect of life. This transformation impacts the way believers think, love, and live, conforming them to Christ’s image as described in **Romans 8:29**: *“For those whom He foreknew, He also predestined to become conformed to the image of His Son.”*
 
 Christ serves as the ultimate model for humility, love, and obedience. However, this growth into Christlikeness is not achieved through self-effort. It is a grace-driven process enabled by communion with Him and the indwelling power of the Holy Spirit. Through this ongoing transformation, believers reflect His love, compassion, and holiness to the world, fulfilling their purpose as His disciples.
@@ -358,7 +358,7 @@ At the heart of the Christian calling is communion with Christ, which serves as 
 
 Transformation occurs as believers remain connected to Christ through prayer, meditation on God’s Word, and reliance on the Holy Spirit. This union is not only the means of spiritual growth but also the fulfillment of the believer’s purpose: to live in intimate relationship with God and reflect His divine nature.
 
-### **Our Calling to Transformation**
+### **The Calling to Transformation**
 *Theosis* is not merely a theological concept but a practical and essential aspect of the Christian life. It represents the believer’s holy calling to glorify God and emulate Christ through an ongoing relationship with Him. This transformative journey, sustained by the enabling grace of the Holy Spirit, is both a privilege and a responsibility.
 
 As believers grow in communion with Christ, their lives are progressively shaped into His image, radiating His glory to the world. Through this journey of *theosis*, Christians fulfill their divine purpose to glorify God and partake in His divine nature, both in the present and in the promise of eternity.
