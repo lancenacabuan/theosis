@@ -347,30 +347,15 @@ The first dimension of the Christian calling is to glorify God in every aspect o
 
 The Apostle Paul describes this transformative journey in **2 Corinthians 3:18**: *“We all, with unveiled face, beholding as in a mirror the glory of the Lord, are being transformed into the same image from glory to glory.”* This transformation occurs not by human effort but through the power of the Holy Spirit as believers live in communion with Christ. By engaging in practices such as prayer, Scripture study, and worship, Christians progressively grow in their ability to reflect God’s glory, participating in His divine life and holiness.
 
-**Practical Implications**:
-- Approach every aspect of life—work, relationships, and service—as opportunities to glorify God.
-- Dedicate time daily to practices that foster a deeper awareness of His presence.
-- Cultivate gratitude and reliance on the Holy Spirit to guide and empower your actions.
-
 ### **2. Emulate Christ: Growing into His Likeness**
 The second dimension of *theosis* is the call to emulate Christ, which involves not merely imitating His actions but allowing His character to transform every aspect of life. This transformation impacts the way believers think, love, and live, conforming them to Christ’s image as described in **Romans 8:29**: *“For those whom He foreknew, He also predestined to become conformed to the image of His Son.”*
 
 Christ serves as the ultimate model for humility, love, and obedience. However, this growth into Christlikeness is not achieved through self-effort. It is a grace-driven process enabled by communion with Him and the indwelling power of the Holy Spirit. Through this ongoing transformation, believers reflect His love, compassion, and holiness to the world, fulfilling their purpose as His disciples.
 
-**Practical Implications**:
-- Reflect on Christ’s life and teachings as a model for your character and behavior.
-- Surrender areas of struggle to God’s transforming grace through prayer and repentance.
-- Engage in Christian community to encourage mutual growth in Christlikeness.
-
 ### **The Power of Communion**
 At the heart of the Christian calling is communion with Christ, which serves as the foundation for both glorifying God and emulating Christ. Jesus declares in **John 15:4**, *“Abide in Me, and I in you. As the branch cannot bear fruit of itself unless it abides in the vine, so neither can you unless you abide in Me.”* This abiding relationship is the essence of *theosis*, through which believers are empowered to grow in holiness and reflect God’s glory.
 
 Transformation occurs as believers remain connected to Christ through prayer, meditation on God’s Word, and reliance on the Holy Spirit. This union is not only the means of spiritual growth but also the fulfillment of the believer’s purpose: to live in intimate relationship with God and reflect His divine nature.
-
-**Practical Implications**:
-- Prioritize personal communion with Christ through daily prayer and reflection on Scripture.
-- Trust in the Holy Spirit’s strength to navigate challenges and foster spiritual growth.
-- Participate in the sacraments, particularly the Eucharist, as expressions of divine communion.
 
 ### **Our Calling to Transformation**
 *Theosis* is not merely a theological concept but a practical and essential aspect of the Christian life. It represents the believer’s holy calling to glorify God and emulate Christ through an ongoing relationship with Him. This transformative journey, sustained by the enabling grace of the Holy Spirit, is both a privilege and a responsibility.
