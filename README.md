@@ -445,7 +445,7 @@ As Christians embrace *theosis*, they become living witnesses of the Gospel’s 
 
 ---
 
-## *Conclusion*
+## *Conclusion: Glorify God. Emulate Christ.*
 The Christian life is a transformative journey that calls believers to glorify God and grow into the likeness of Christ. The doctrine of *theosis* provides a theological framework for understanding this journey as a dynamic process of spiritual transformation. Rooted in Scripture and enriched by the insights of the Church Fathers, *theosis* offers a vision of salvation that encompasses both present sanctification and future glorification.
 
 Throughout this thesis, *theosis* has been presented as a holistic framework for Christian discipleship, unfolding in the stages of purification, illumination, and union. These stages emphasize the cooperative relationship between divine grace and human response, demonstrating that the transformative work of salvation is initiated and empowered by God, yet requires active participation by believers. This synergy maintains the Creator-creation distinction while inviting humanity to partake in God’s divine life.
@@ -456,7 +456,7 @@ Ultimately, *theosis* calls believers to fulfill their sacred purpose: to glorif
 
 Thus, the doctrine of *theosis* stands as a profound theological and practical framework for understanding the Christian life. It challenges believers to embrace their role as image-bearers of God and participants in His divine nature, advancing His kingdom on earth while anticipating the joy of eternal communion with Him.
 
-**Glorify God. Emulate Christ.**—this is the essence of the Christian calling and the transformative promise of *theosis*. It is a journey that begins in the here and now and finds its ultimate fulfillment in the eternal presence of the Creator.
+**Glorify God. Emulate Christ.** This is the essence of the Christian calling and the transformative promise of *theosis*. It is a journey that begins in the here and now and finds its ultimate fulfillment in the eternal presence of the Creator.
 
 ---
 
