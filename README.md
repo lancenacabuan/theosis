@@ -424,7 +424,7 @@ The journey of *theosis* encompasses all aspects of daily life, calling believer
 
 In the workplace, Christians can embody virtues such as honesty, integrity, and compassion, demonstrating God’s character through their interactions. At home, acts of kindness, forgiveness, and humility reflect Christ’s love. These everyday expressions of *theosis* serve as a witness to others, inviting them to encounter God’s transformative power. As Colossians 3:23-24 teaches, all work done in the name of Christ becomes an act of service to God, reinforcing how *theosis* permeates every aspect of life.
 
-### **6. Embracing the Transformative Power of Theosis in Contemporary Life**
+### **Embracing the Transformative Power of Theosis in Contemporary Life**
 In conclusion, the relevance of *theosis* in contemporary Christian life is profound. By addressing the spiritual, relational, and societal challenges of the modern world, *theosis* equips believers to reflect God’s glory and grow in Christlikeness in all areas of life. Through the cultivation of spiritual disciplines, responsible use of technology, active social engagement, and the pursuit of holistic well-being, believers fulfill their divine calling to glorify God and emulate Christ.
 
 As Christians embrace *theosis*, they become living witnesses of the Gospel’s transformative power, participating in God’s mission to restore and renew all things. This journey reflects the promise of Romans 8:19, where creation eagerly awaits the revealing of the sons of God. Through *theosis*, believers not only anticipate future glorification but also live out their sacred calling in the present, offering hope and renewal to a broken world.
