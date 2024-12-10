@@ -228,29 +228,34 @@ The *Order of Salvation* reveals the divine plan through which God transforms be
 ---
 
 ## **V. The Role of the Trinity**
-Theosis is inherently Trinitarian, involving the Father, Son, and Holy Spirit in distinct but interdependent roles. Each Person of the Trinity works in harmony to accomplish the transformation of believers into the image of Christ. The synergy between the divine and human effort is rooted in their cooperative roles throughout the process of *theosis*.
+*Theosis* is inherently Trinitarian, involving the Father, Son, and Holy Spirit in distinct yet interdependent roles. Each Person of the Trinity works in harmony to accomplish the transformation of believers into the image of Christ. The synergistic relationship between divine and human effort is rooted in the cooperative roles of the Trinity throughout the process of *theosis*.
 
 ### **1. God the Father: The Source of Theosis**
-The Father is the initiator and source of divine life, calling humanity into communion with Himself. This divine invitation begins the transformative process of *theosis*, empowering believers to grow into Christlikeness:
-- **Creation**: God made humanity in His image to reflect His glory (**Genesis 1:26-27**). This original purpose is not lost but is renewed in Christ, who perfectly reflects the Father’s image.
-- **Adoption**: Through Christ, the Father adopts believers as His children, making them heirs of His divine life (**Romans 8:15-17**). This adoption is a central aspect of the believer's participation in God's divine nature, as they are brought into a familial relationship with the Creator.
-- **Glorification**: The Father promises to complete the believer’s transformation, ensuring their ultimate glorification (**Philippians 1:6**). This glorification is not just a future reality but an ongoing process of sanctification in the present, made possible by God’s grace.
+The Father is the initiator and source of divine life, calling humanity into communion with Himself. This divine invitation marks the beginning of the transformative process of *theosis*, empowering believers to grow into Christlikeness:
+
+- **Creation**: God created humanity in His image to reflect His glory (**Genesis 1:26-27**). This original purpose, though marred by sin, is renewed in Christ, who perfectly reflects the Father’s image.
+- **Adoption**: Through Christ, the Father adopts believers as His children, making them heirs of His divine life (**Romans 8:15-17**). Adoption is central to *theosis*, as it brings believers into a familial relationship with God, enabling them to partake in His divine nature.
+- **Glorification**: The Father promises to complete the believer’s transformation, ensuring their ultimate glorification (**Philippians 1:6**). Glorification is not merely a future reality but an ongoing process of sanctification in the present, made possible through God's grace.
+
+In these roles, the Father is the source of all spiritual life and transformation, guiding believers through their journey toward Christlikeness.
 
 ### **2. God the Son: The Mediator and Model**
 Jesus Christ mediates *theosis* through His incarnation, death, and resurrection. Through His work, believers are enabled to partake in the divine life, conformed to His image, and transformed by His grace:
-- **Incarnation**: By taking on human nature, Christ unites divinity with humanity, making divine life accessible (**John 1:14**). His life on earth, as both fully God and fully man, establishes the foundation for humanity’s union with God.
-- **Redemption**: His atoning work removes sin’s barrier, reconciling believers to God (**2 Corinthians 5:21**). Through Christ’s sacrifice, believers are forgiven and made righteous, positioning them for further transformation into His likeness.
-- **Union with Christ**: Believers share in Christ’s life through faith and baptism, enabling their transformation (**Romans 6:3-5**). This union is vital, for it is in Christ that believers find their identity, and by abiding in Him, they grow in holiness.
 
-As the perfect image of God (**Colossians 1:15**), Christ serves as both the mediator and the model for believers to imitate in their journey toward holiness and glory. His life and work provide the paradigm for the believer’s participation in *theosis*, reflecting the fullness of divine nature.
+- **Incarnation**: By taking on human nature, Christ unites divinity with humanity, making divine life accessible to believers (**John 1:14**). His life on earth, as both fully God and fully man, establishes the foundation for humanity’s union with God.
+- **Redemption**: Christ’s atoning work removes the barrier of sin, reconciling believers to God (**2 Corinthians 5:21**). Through His sacrifice, believers are forgiven, made righteous, and positioned for further transformation into His likeness.
+- **Union with Christ**: Believers share in Christ’s life through faith and baptism, enabling their transformation (**Romans 6:3-5**). This union is crucial, as believers find their identity in Christ. By abiding in Him, they grow in holiness and are progressively conformed to His image.
+
+As the perfect image of God (**Colossians 1:15**), Christ serves both as the mediator and the model for believers to imitate in their journey toward holiness and glory. His life and work provide the paradigm for the believer’s participation in *theosis*, revealing the fullness of divine nature.
 
 ### **3. God the Holy Spirit: The Empowerer**
 The Holy Spirit actively works within believers to sanctify and empower their transformation, ensuring that they continue to grow in Christlikeness and deepen their relationship with God:
-- **Regeneration**: The Spirit initiates the new birth, beginning the process of *theosis* (**John 3:5-8**). This regenerative work of the Spirit transforms the believer from spiritual death to new life in Christ.
-- **Sanctification**: Through the Spirit, believers grow in holiness and are conformed to Christ’s image (**2 Thessalonians 2:13**). The Holy Spirit is the active agent in the believer's daily transformation, enabling them to live in obedience and reflect Christ’s character.
-- **Indwelling**: The Spirit resides in believers, making them temples of God and enabling communion with Him (**1 Corinthians 6:19**). This indwelling presence of the Spirit is the guarantee of the believer’s transformation, as it is through the Spirit that they are empowered to live a godly life.
 
-By uniting believers with the Father and the Son, the Holy Spirit ensures their continual transformation and deepening intimacy with God. It is through the Spirit that the grace of God is continually made available, allowing the believer to grow into the fullness of Christ’s likeness, ultimately fulfilling their calling to reflect God's glory.
+- **Regeneration**: The Spirit initiates the new birth, marking the beginning of the process of *theosis* (**John 3:5-8**). The regenerative work of the Spirit transforms the believer from spiritual death to new life in Christ.
+- **Sanctification**: Through the Holy Spirit, believers grow in holiness and are conformed to Christ’s image (**2 Thessalonians 2:13**). The Spirit is the active agent in the believer's daily transformation, enabling them to live in obedience and reflect Christ’s character.
+- **Indwelling**: The Holy Spirit resides in believers, making them temples of God and enabling communion with Him (**1 Corinthians 6:19**). The indwelling presence of the Spirit guarantees the believer’s ongoing transformation, as it is through the Spirit that they are empowered to live a godly life.
+
+By uniting believers with the Father and the Son, the Holy Spirit ensures their continual transformation and deepening intimacy with God. Through the Spirit, the grace of God is continually made available, empowering believers to grow into the fullness of Christ’s likeness, ultimately fulfilling their calling to reflect God’s glory.
 
 ---
 
